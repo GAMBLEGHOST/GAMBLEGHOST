@@ -1,6 +1,6 @@
 ![1000001279](https://github.com/user-attachments/assets/d2aafcb8-224e-48b6-a292-c4abeb2f7ce7)
-           May 23
-      tiaa , skii , rain
+              May 23
+        tiaa , skii , rain
 ## ABOUT ME
 
 - i go bu tiaa, rain, tiana, tiami, skii, egostaira, connie and more
