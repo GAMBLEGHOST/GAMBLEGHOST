@@ -1,6 +1,6 @@
 ![1000001279](https://github.com/user-attachments/assets/d2aafcb8-224e-48b6-a292-c4abeb2f7ce7)
-              May 23
-        tiaa , skii , rain
+             
+       
 ## ABOUT ME
 
 - i go bu tiaa, rain, tiana, tiami, skii, egostaira, connie and more
@@ -10,6 +10,9 @@
 - i love a lot of things but my favorite colors are blue, pink red and pastel colors
 
 - my mbti is I-INTP
+
+- birthday 23 May
+
 
 ![1000002068](https://github.com/user-attachments/assets/9ac93e9e-a096-4010-a085-e9d040ac8523)
 
