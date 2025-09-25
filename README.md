@@ -3,7 +3,7 @@
        
 ## ABOUT ME
 
-- i go bu tiaa, rain, tiana, tiami, skii, egostaira, connie and more
+- i go by tiaa, rain, tiana, tiami, skii, egostaira, connie and more
 
 - jokes about me are alr, but fake rumors arent.. ;-;
 
