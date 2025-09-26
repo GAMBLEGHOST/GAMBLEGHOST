@@ -43,11 +43,11 @@
 
 - brushyhauntedgachaponshell (brusha x connie x gigi x shelly)
 
--berryvision, digitalberry (sprout x vee)
+- berryvision, digitalberry (sprout x vee)
 
--azuretime (azure x two time)
+- azuretime (azure x two time)
 
--doublezipper (azure x 1x4)
+- doublezipper (azure x 1x4)
 
 - azuretrapped (azure x itrapped)
 
