@@ -23,7 +23,7 @@
 
 - Dni ex friends
 
-- Dni if you copy skins + take inspo without perms from anyone elde
+- Dni if you copy skins + take inspo without perms from anyone else
 
 ## GAMBLE GHOST CEO
 
