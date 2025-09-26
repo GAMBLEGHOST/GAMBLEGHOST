@@ -55,10 +55,5 @@
 
 - olice (oliver x alice)
 
-          
-        
-
-![1000001191](https://github.com/user-attachments/assets/bbeeac73-f18c-4b7c-bd43-9e5bc95e726c)
-
 
 
