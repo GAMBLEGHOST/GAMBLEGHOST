@@ -5,6 +5,8 @@
 
 - i go by tiaa, rain, tiana, tiami, skii, egostaira, connie and more
 
+- connie irl 
+
 - jokes about me are alr, but fake rumors arent.. ;-;
 
 - i love a lot of things but my favorite colors are blue, pink red and pastel colors
