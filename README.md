@@ -7,5 +7,5 @@
         She / Her / Ghost 
          Connie fictkin
       Gigi - Sayaka mizi kin
-  Oftenly at the dandys world area.
+   Oftenly at the dandys world area.
  
