@@ -2,7 +2,7 @@
      
      GambleGhost/Shell/Brush hyperfix!!!
       ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣
-       23        -     May
+    𓏵   23      -    May   𓏵
         Gambleghost  CEO
         She / Her / Ghost 
          Connie fictkin
