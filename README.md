@@ -7,5 +7,6 @@
         She / Her / Ghost 
          Connie fictkin
       Gigi - Sayaka mizi kin
+      Offtab / Drawing / Doing ponies most of the time.
       Oftenly at the dandys world area
  
