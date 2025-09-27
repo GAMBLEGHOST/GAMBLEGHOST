@@ -5,4 +5,5 @@
        23        -     May
         Gambleghost  CEO
         She / Her / Ghost 
-        
+         Connie fictkin
+        Gigi - Shelly kin
