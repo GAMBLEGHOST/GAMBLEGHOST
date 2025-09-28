@@ -1,6 +1,8 @@
-![1000001279](https://github.com/user-attachments/assets/d2aafcb8-224e-48b6-a292-c4abeb2f7ce7)
+<img width="370" height="320" alt="1000002331" src="https://github.com/user-attachments/assets/2965f6f4-5a0a-45d7-9250-f983bea7c5c8" />
+
+
      
-     GambleGhost/Shell/Brush hyperfix!!!
+     GambleGhost/Shell/Brush + CocoaShell hyperfix!!!
       ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣
     𓏵   23      -    May   𓏵
         Gambleghost  CEO
