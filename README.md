@@ -4,11 +4,11 @@
      
      GambleGhost/Shell/Brush + CocoaShell hyperfix!!!
       ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣
-    𓏵   23      -    May   𓏵
+    𓏵   23      -     May   𓏵
         Gambleghost  CEO
         She / Her / Ghost 
-         Connie fictkin
-      Gigi - Sayaka mizi kin
+        Connie irl perhaps !
+       Gigi     -    fictkin 
       Offtab / Drawing / Doing ponies most of the time.
       Oftenly at the dandys world area
  
