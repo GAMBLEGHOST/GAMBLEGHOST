@@ -1,7 +1,5 @@
-<img width="1328" height="1013" alt="1000002641" src="https://github.com/user-attachments/assets/1be9649a-31b3-41e0-b9d4-e7d9f1b281fb" />
-Drawing New gambleghost arts anytime
+<img width="1013" height="993" alt="1000002697" src="https://github.com/user-attachments/assets/8b5a7153-5482-473c-920a-949d513b7603" />
 
-    ↑ this art belongs to me
      GambleGhost/Shell/Brush + CocoaShell hyperfix!!!
       ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣ ⌣
     𓏵   23      -     May   𓏵
