@@ -8,5 +8,5 @@
         Connie irl perhaps !
        Gigi     -    fictkin 
       Offtab / Drawing / Doing ponies most of the time.
-      Oftenly at the dandys world area
-Drawing gambleghost and putting en anyday
+      Oftenly at the dandys world area.
+      Drawing gambleghost and putting them anyday!!
