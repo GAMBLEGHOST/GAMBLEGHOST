@@ -3,8 +3,12 @@
 
 # 
 
-    ╰ Cocoashell Gambleghost Partypop     Piñyattaghost Conniecest hyperfix  
-   
+    Cocoashell Gambleghost Partypop     Piñyattaghost Conniecest hyperfix !!
+
+
+      
+      
+    ╰ ' ★ * °
 
      23 ɱαყ  ,  Ɠҽɱιɳι  , Ι-Ιɳƚρ
      ꕀ ꪆ୧ ꕀ ꪆ୧ ꕀ ꪆ୧ ꕀ ꪆ୧ ꕀ ꪆ୧ ꕀ
