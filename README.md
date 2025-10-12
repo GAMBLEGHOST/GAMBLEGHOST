@@ -1,5 +1,5 @@
+<img width="1952" height="1054" alt="1000004224" src="https://github.com/user-attachments/assets/4dbc4441-eb4c-40b6-86dd-1cfe839d3ed3" />
 
-<img width="1255" height="993" alt="1000003668" src="https://github.com/user-attachments/assets/28733dee-406a-4298-aba4-dc851e2b0d1d" />
 
 #
     Cocoashell Gambleghost Partypop Piñyattaghostgambling Conniecest rabbitwolf hyperfix !!
