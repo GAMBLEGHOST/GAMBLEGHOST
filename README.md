@@ -1,3 +1,4 @@
-<img width="1952" height="1054" alt="1000004251" src="https://github.com/user-attachments/assets/3a01bb2a-4447-49eb-ae32-44fcb1736127" />
+<img width="500" height="350" alt="1000004252" src="https://github.com/user-attachments/assets/4bf8bc4e-03f3-41e5-b999-20bd9228f71b" />
 
-![⁠✷](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=ffb6d9&style=flat)
+
+![^w^](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=ffb6d9&style=flat)
