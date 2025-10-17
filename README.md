@@ -4,6 +4,4 @@
 ![🎰👻](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=FFDEF4&style=flat&label=🎰👻)
 
 
-
-<img width="1006" height="504" alt="1000004709" src="https://github.com/user-attachments/assets/d82740a5-9072-411d-ba39-65374c1675a8" />
-
+<img width="1006" height="504" alt="1000004712" src="https://github.com/user-attachments/assets/4f3a0561-074f-4cd3-a3a4-a986fd56e3dd" />
