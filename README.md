@@ -1,9 +1,9 @@
+<img width="736" height="377" alt="1000004746" src="https://github.com/user-attachments/assets/d2093a07-b010-4703-acf3-e06079252721" />
 
-<img width="1006" height="504" alt="1000004711" src="https://github.com/user-attachments/assets/cc2b9bcb-a5e0-4051-9e10-719a83808c2c" />
  
-![🎰👻](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=FFDEF4&style=flat&label=🎰👻)
+![🎰👻 ꔛ](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=🎰👻 ꔛ)
 
 
 
-<img width="1006" height="504" alt="1000004713" src="https://github.com/user-attachments/assets/01df725f-c647-4753-bec8-ddd22355c9aa" />
+<img width="735" height="124" alt="1000004747" src="https://github.com/user-attachments/assets/02608bab-65f8-4124-80f6-b0d7cc9c8a77" />
 
