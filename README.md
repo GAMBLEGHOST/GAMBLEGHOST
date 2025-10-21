@@ -2,6 +2,7 @@
  ✦[strawpage](https://ghostly-painted-shells.straw.page)
 
 
+
 [arts & questions](https://ghostly-painted-shells.straw.page)
 
 ![🎰👻 ](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=🎰👻 )
