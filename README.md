@@ -1,7 +1,7 @@
 <img width="736" height="377" alt="1000004746" src="https://github.com/user-attachments/assets/d2093a07-b010-4703-acf3-e06079252721" />
  ✦
 
-[strawpage](https://ghostly-painted-shells.straw.page)
+[roblox acc](https://www.roblox.com/share?code=3f9bc1bd6f57f84294ed70ac49d51cb7&type=Profile&source=ProfileShare&stamp=1761041178174/4021062612)
 
 
 ![🎰👻 ](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=🎰👻 )
