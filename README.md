@@ -1,4 +1,4 @@
-## 
+## this person will brb like a boomerang!! (if they dont forget they exist)
 
 <img width="736" height="414" alt="1000005418" src="https://github.com/user-attachments/assets/a4cf633d-ac58-465d-9744-7ad5b46e8f82" />
 
