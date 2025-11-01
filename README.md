@@ -3,7 +3,7 @@
 ###### now you see me, now you dont!
 
 
-![h](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=hi
+![test](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=(test)
 
 
 [dni,int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)
