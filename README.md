@@ -2,7 +2,7 @@
 
 ###### now you see me, now you dont!
 
-![✦ghosts](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=✦ghosts)
+![♡](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=(♡)
 
 [dni,int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)
 
