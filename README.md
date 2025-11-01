@@ -4,7 +4,7 @@
 
 
 
-![♡](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=(♡)
+![✧](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=(✧)
 
 
 
