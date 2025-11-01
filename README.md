@@ -1,6 +1,6 @@
 <img width="1935" height="1456" alt="1000007367" src="https://github.com/user-attachments/assets/a6cee4d3-aa3f-45b1-be94-f8265da7f718" />
 
-###### now you see me, now you dont!
+####### now you see me, now you dont!
 
 ![✦ ](https://komarev.com/ghpvc/?username=GAMBLEGHOST&color=9AC5F6&style=flat&label=✦ )
 
