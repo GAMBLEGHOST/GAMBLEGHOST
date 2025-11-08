@@ -1,6 +1,5 @@
 <h1 align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=8B0000&center=true&vCenter=true&width=800&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+꒱" alt="typing animation"><br>
-  <b>𝙘𝙤𝙣𝙣𝙞𝙚 𝙗𝙤𝙤𝙡𝙮𝙣𝙨𝙠𝙞</b>
+  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=8B0000&center=true&vCenter=true&width=850&font=Fira+Code&weight=700&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+Connie+Boolynski+꒱" alt="typing animation">
 </h1>
 
 ![1000008130](https://github.com/user-attachments/assets/65dcbf22-2cea-4266-bc47-d9dd093c6a10)
