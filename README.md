@@ -1,8 +1,6 @@
 
 <h1 align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=8B0000&center=true&vCenter=true&width=800&lines=꒰+%E2%80%9C+oOo~+Where+did+i+go!+%E2%80%9C+-+%F0%9D%99%98%F0%9D%99%A2%F0%9D%99%A7%F0%9D%99%A7%F0%9D%99%9A+%F0%9D%99%8F%F0%9D%99%A8%F0%9D%99%A8%F0%9D%99%A5%F0%9D%99%A6%F0%9D%99%A2%F0%9D%99%9C%F0%9D%99%A2+꒱" alt="typing animation">
-</h1>
-
+  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=8B0000&center=true&vCenter=true&width=800&lines=꒰+%E2%80%9C+oOo~+Where+did+i+go!+%E2%80%9C+
 
 ![1000008130](https://github.com/user-attachments/assets/65dcbf22-2cea-4266-bc47-d9dd093c6a10)
 
