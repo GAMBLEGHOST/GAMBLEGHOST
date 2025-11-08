@@ -1,3 +1,4 @@
+https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=8B0000&center=true&vCenter=true&width=800&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+꒱
 
 ![1000008130](https://github.com/user-attachments/assets/65dcbf22-2cea-4266-bc47-d9dd093c6a10)
 
