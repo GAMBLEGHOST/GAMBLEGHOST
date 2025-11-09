@@ -21,7 +21,7 @@
 ## read this in the meantime (friends)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-#### if im infront of you/nearby or in the same area, when you just join the game/in a line suddenly, im trying to talk or using anything as a excuse talk to you, and if youre just going to a line, going nearby a friend when you just joined, i dont like this a bit but no i dont mean that, you can ofc go in a line or sit w someone that doesnt bother me. if you just dont notice that i try to join that line ( to sit w you, or talk or even both ) guess what.. ill be pretty mad n upset. and if you will blame for this, i am so easy to get mad / offended and upset. wanting to vent me? im your nurse, im here for you!
+#### if im infront of you/nearby or in the same area, when you just join the game/in a line suddenly, im trying to talk or using anything as a excuse talk to you, and if youre just going to a line, going nearby a friend when you just joined, i dont like this a bit but no i dont mean that, you can ofc go in a line or sit w someone that doesnt bother me. if you just dont notice that i try to join that line ( to sit w you, or talk or even both ) guess what.. ill be pretty mad n upset. and if you will blame for this, i am so easy to get mad / offended and upset.               you wanna vent? ofc, i am your nurse!
 
 ## ㅤㅤ
 
