@@ -11,7 +11,7 @@
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
 
 
-︵ [dni + int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)  ✦                   [strawpage](https://ghostly-painted-shells.straw.page) ✦            [atabook](https://tiaa.atabook.org)  ✦ [rentry](https://rentry.co/tiaaa)
+︵ [dni + int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)  ✦                   [strawpage](https://ghostly-painted-shells.straw.page) ✦            [atabook](https://tiaa.atabook.org)  ✦ [rentry](https://rentry.co/tiaaa)´ཀ`
 
 ####
 
