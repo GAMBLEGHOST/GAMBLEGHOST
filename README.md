@@ -17,12 +17,13 @@
 
 #### 🩵👻 𝗕𝗬𝗜 : 𝗜𝗠 𝗧𝗛𝗘 𝗖𝗘𝗢 𝗢𝗙 𝗚𝗔𝗠𝗕𝗟𝗘𝗚𝗛𝗢𝗦𝗧 𝗔𝗡𝗗 𝗖𝗢𝗖𝗢𝗔𝗦𝗛𝗘𝗟𝗟 + 𝗥𝗔𝗕𝗕𝗜𝗧𝗪𝗢𝗟𝗙 𝗔𝗡𝗗 𝗔𝗟𝗦𝗢 𝗝𝗘𝗟𝗟𝗬𝗙𝗟𝗬 ! , 𝗗𝗢𝗡𝗧 𝗣𝗜𝗦𝗦 𝗠𝗘 𝗢𝗙 𝗕𝗬 𝗦𝗔𝗬𝗜𝗡𝗚 𝗬𝗢𝗨 𝗛𝗔𝗧𝗘 𝗜𝗧 , 𝗜𝗠 𝗡𝗢𝗧 𝗙𝗢𝗥𝗖𝗜𝗡𝗚 𝗬𝗢𝗨 𝗧𝗢 𝗟𝗜𝗞𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗛𝗜𝗣𝗦 + 𝗜 𝗥𝗘𝗦𝗣𝗘𝗖𝗧 𝗬𝗢𝗨 𝗜𝗙 𝗬𝗢𝗨 𝗗𝗢𝗡'𝗧 𝗟𝗜𝗞𝗘 𝗜𝗧.
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+## read this in the meantime
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+#### if im infront of you/nearby or in the same area, when you just join the game/in a line suddenly, im trying to talk or using anything as a excuse talk to you, and if youre just going to a line, going nearby a friend when you just joined, di dont like this a bit. if you just dont notice that i try to join that line ( to sit w you, or talk or even both ) guess what.. ill be pretty mad n upset. and if you will blame for this, i am so easy to get mad / offended and upset. wanting to vent me? im your nurse, im here for you!
 
-
-#### its so easy to make mad or upset, and how? if im infront of you when you just join the game/in a line, im trying to talk or using anything as a excuse talk to you, and if youre just going to a line, going nearby a friend when you just joined, di dont like this a bit. if you just dont notice that i try to join that line ( to sit w you, or talk or even both ) guess what.. ill be pretty mad n upset. and if you will blame for this, i am so easy to get mad / offended and upset. wanting to vent me? im your nurse, im here for you!
-
-## 
+## ㅤㅤ
 
 ![1000008305](https://github.com/user-attachments/assets/627d2d35-ebf1-4de0-8c75-cb843ca32c7f)
 
