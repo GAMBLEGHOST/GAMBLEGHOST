@@ -25,5 +25,23 @@
 </h1>
 
 
-![1000008305](https://github.com/user-attachments/assets/627d2d35-ebf1-4de0-8c75-cb843ca32c7f)
+![1000008427](https://github.com/user-attachments/assets/6edee6b8-c350-41c0-94cc-4dbf0f2aa70f)
+
+This is also me btw ↑ ^_^
+
+
+
+
+
+
+
+
+
+
+
+
+
+##### i love you gambleghost 
+
+![1000005408](https://github.com/user-attachments/assets/8afdcdb2-3764-457d-99da-d5d0a62a585f)
 
