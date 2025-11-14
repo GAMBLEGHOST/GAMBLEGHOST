@@ -1,6 +1,10 @@
  <h1 align="center">
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=8B0000&center=true&vCenter=true&width=850&font=Fira+Code&weight=700&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+Connie+Boolynski+꒱" alt="typing animation">
- </h1>                             ![1000007310](https://github.com/user-attachments/assets/efab750f-978b-4ac9-978d-f9d404887f85)
+ </h1>                         
+
+
+ ![1000008306](https://github.com/user-attachments/assets/67ca3a00-5f84-4eba-9bf8-5257e43a27ea)
+
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
 
