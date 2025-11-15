@@ -18,7 +18,7 @@
 
 ##### currently listening to
 
-<img src="https://spotify-now-playing-gamma-one.vercel.app/api/now-playing/31csjciawoskkazx645babnbrpoi" />
+![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=31csjciawoskkazx645babnbrpoi&cover_image=true&theme=novatorem&bar_color=ff00ff)
 
 
 <h1 align="center">
