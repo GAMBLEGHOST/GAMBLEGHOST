@@ -18,7 +18,7 @@
 
 ##### currently listening to
 
-<img src="https://spotify-now-playing-gamma-one.vercel.app/api/now-playing/31csjciawoskkazx645babnbrpoi" />
+<img src="https://YOUR-VERCEL-APP.vercel.app/spotify-card.svg" />
 
 <h1 align="center">
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
