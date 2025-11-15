@@ -18,7 +18,8 @@
 
 ##### currently listening to
 
-https://spotify-github-profile.vercel.app/api/view?uid=31csjciawoskkazx645babnbrpoi&cover_image=true&theme=default&show_offline=false&background_color=121212
+![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=31csjciawoskkazx645babnbrpoi&cover_image=true&theme=default&show_offline=false&background_color=ff44aa)
+
 
 <h1 align="center">
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
