@@ -18,10 +18,19 @@
 
 ##### currently listening to
 
-spotify-now-playing/
-├─ index.js
-├─ package.json
-├─ .env
+{
+  "name": "spotify-now-playing-svg",
+  "version": "1.0.0",
+  "type": "module",
+  "scripts": {
+    "start": "node index.js"
+  },
+  "dependencies": {
+    "express": "^4.18.2",
+    "node-fetch": "^3.3.2",
+    "dotenv": "^16.4.0"
+  }
+}
 
 
 <h1 align="center">
