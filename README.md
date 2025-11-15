@@ -18,7 +18,10 @@
 
 ##### currently listening to
 
-![Spotify Now Playing](https://YOUR-VERCEL-APP.vercel.app/spotify-card.svg)
+spotify-now-playing/
+├─ index.js
+├─ package.json
+├─ .env
 
 
 <h1 align="center">
