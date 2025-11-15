@@ -18,20 +18,7 @@
 
 ##### currently listening to
 
-{
-  "name": "spotify-now-playing-svg",
-  "version": "1.0.0",
-  "type": "module",
-  "scripts": {
-    "start": "node index.js"
-  },
-  "dependencies": {
-    "express": "^4.18.2",
-    "node-fetch": "^3.3.2",
-    "dotenv": "^16.4.0"
-  }
-}
-
+<img src="https://spotify-now-playing-gamma-one.vercel.app/api/now-playing/31csjciawoskkazx645babnbrpoi" />
 
 <h1 align="center">
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
