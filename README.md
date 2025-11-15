@@ -18,7 +18,7 @@
 
 ##### currently listening to
 
-![Spotify Currently Playing](https://spotify-github-profile.vercel.app/api/view?uid=31csjciawoskkazx645babnbrpoi&cover_image=true&theme=default&show_offline=true)
+![Spotify Now Playing](https://YOUR-VERCEL-APP.vercel.app/spotify-card.svg)
 
 
 <h1 align="center">
