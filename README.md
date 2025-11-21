@@ -3,7 +3,7 @@
  </h1>                         
 
 
- ![1000008306](https://github.com/user-attachments/assets/67ca3a00-5f84-4eba-9bf8-5257e43a27ea)
+ ![1000009253](https://github.com/user-attachments/assets/963b6a3c-99f6-482e-bc06-0f28953bd06d)
 
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
@@ -27,10 +27,7 @@
   <img src="https://readme-typing-svg.herokuapp.com?size=34&duration=4200&pause=1000&color=FFDDE6&center=true&vCenter=true&width=1000&font=Fira+Code&weight=700&lines=꒰+%22+SKAATINNNNNGGGGGGGG+%22+-+VEERONICA+♡+꒱" alt="typing animation">
 </h1>
 
-#### veeronica is wip i think
+#### ilove you too gambleghost
 
 <img width="1862" height="1456" alt="1000009104" src="https://github.com/user-attachments/assets/c0cc6e31-c73b-446a-bcf9-17f15cff8692" />
-
-<img width="1917" height="1456" alt="1000009110" src="https://github.com/user-attachments/assets/620c2342-7ed8-4b5e-b59a-8640d9049f50" />
-
 
