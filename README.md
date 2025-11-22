@@ -32,3 +32,6 @@
 
 <img width="1862" height="1456" alt="1000009104" src="https://github.com/user-attachments/assets/c0cc6e31-c73b-446a-bcf9-17f15cff8692" />
 
+-
+#### hi this is for you somi hopefully youll like it cause umm i didnt
+<img width="736" height="833" alt="1000009314" src="https://github.com/user-attachments/assets/e6f87ad7-e9ab-4549-8a91-6853913eb3fd" />
