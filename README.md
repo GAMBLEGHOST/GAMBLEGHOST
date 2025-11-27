@@ -3,11 +3,11 @@
  </h1>                         
 
 
- ![1000009254](https://github.com/user-attachments/assets/4e964e2e-e1d6-41eb-bb00-bebbbc60b3ee)
+![1000009520](https://github.com/user-attachments/assets/f30b755b-ba2e-47a2-8381-0193d8ad87bb)
 
-##### i put this bc its tuff okay ok
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
+#### why the profile views doesnt work anymore
 
 
 ︵ [dni + int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)  ✦                   [strawpage](https://ghostly-painted-shells.straw.page) ✦            [atabook](https://tiaa.atabook.org)  ✦ [rentry](https://rentry.co/tiaaa)´ཀ`
