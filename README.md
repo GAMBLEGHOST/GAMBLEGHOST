@@ -4,6 +4,9 @@
 
 
 ![1000009253](https://github.com/user-attachments/assets/a2d1b54b-2164-4b7c-83e8-723ae3a5e95a)
+#### litreally me and sis
+
+![1000009939](https://github.com/user-attachments/assets/539c7f3e-9fc3-41b3-9c1b-b21e8977678c)
 
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
