@@ -6,9 +6,6 @@
 ![1000009253](https://github.com/user-attachments/assets/a2d1b54b-2164-4b7c-83e8-723ae3a5e95a)
 
 
-![1000009252](https://github.com/user-attachments/assets/0d1fac63-c6aa-48ec-9cf7-8a551cf6d7c7)
-
-
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
 
 
