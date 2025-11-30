@@ -1,6 +1,3 @@
-<h1 align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
-</h1>
 
 <h1 align="center">
   <img src="https://readme-typing-svg.herokuapp.com?size=34&duration=4200&pause=1000&color=FFDDE6&center=true&vCenter=true&width=1000&font=Fira+Code&weight=700&lines=꒰+%22+SKAATINNNNNGGGGGGGG+%22+-+VEERONICA+♡+꒱" alt="typing animation">
@@ -25,10 +22,9 @@
 
 ##### 
 
+<h1 align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
+</h1>
 
-
-
-#### ilove you too gambleghost
-
-<img width="1862" height="1456" alt="1000009104" src="https://github.com/user-attachments/assets/c0cc6e31-c73b-446a-bcf9-17f15cff8692" />
+![1000009976](https://github.com/user-attachments/assets/95244231-f77a-4277-9614-ad127be3010a)
 
