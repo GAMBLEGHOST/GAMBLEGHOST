@@ -2,8 +2,7 @@
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=BLUE&center=true&vCenter=true&width=850&font=Fira+Code&weight=700&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+Connie+Boolynski+꒱" alt="typing animation">
  </h1>                         
 
-#### litreally me and sis
-![1000009253](https://github.com/user-attachments/assets/a2d1b54b-2164-4b7c-83e8-723ae3a5e95a)
+![1000009986](https://github.com/user-attachments/assets/af5c7aa1-4a81-443b-a190-8e819a6cc3ea)
 
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
