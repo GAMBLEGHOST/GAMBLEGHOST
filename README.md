@@ -1,3 +1,11 @@
+<h1 align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
+</h1>
+
+<h1 align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?size=34&duration=4200&pause=1000&color=FFDDE6&center=true&vCenter=true&width=1000&font=Fira+Code&weight=700&lines=꒰+%22+SKAATINNNNNGGGGGGGG+%22+-+VEERONICA+♡+꒱" alt="typing animation">
+</h1>
+
  <h1 align="center">
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=BLUE&center=true&vCenter=true&width=850&font=Fira+Code&weight=700&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+Connie+Boolynski+꒱" alt="typing animation">
  </h1>                         
@@ -18,13 +26,7 @@
 ##### 
 
 
-<h1 align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4500&pause=1000&color=87CEFA&center=true&vCenter=true&width=900&font=Fira+Code&weight=700&lines=꒰+%22+MY+NAME+IS+ALICE,+STRAIGHT!+%22+-+Princess+M∆lice+꒱" alt="typing animation">
-</h1>
 
-<h1 align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?size=34&duration=4200&pause=1000&color=FFDDE6&center=true&vCenter=true&width=1000&font=Fira+Code&weight=700&lines=꒰+%22+SKAATINNNNNGGGGGGGG+%22+-+VEERONICA+♡+꒱" alt="typing animation">
-</h1>
 
 #### ilove you too gambleghost
 
