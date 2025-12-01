@@ -7,14 +7,14 @@
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=BLUE&center=true&vCenter=true&width=850&font=Fira+Code&weight=700&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+Connie+Boolynski+꒱" alt="typing animation">
  </h1>                         
 
-
-![Uploading 1000010134.png…]()
+![1000009974](https://github.com/user-attachments/assets/7bf6406e-b327-47ba-9974-6d1ad2be5abe)
 
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
 
 
-︵ [dni + int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)  ✦                   [strawpage](https://ghostly-painted-shells.straw.page) ✦            [atabook](https://tiaa.atabook.org)  ✦ [rentry](https://rentry.co/tiaaa)´ཀ`
+︵ [dni + int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)  ✦                   [strawpage](https://ghostly-painted-shells.straw.page) ✦            [atabook](https://tiaa.atabook.org)  ✦ [rentry](https://rentry.co/tiaaa)´ཀ` ![1000009995](https://github.com/user-attachments/assets/239d8ad2-9baa-41d0-8b14-98e86a38b742)
+
 
 <img width="2443" height="1456" alt="1000010130" src="https://github.com/user-attachments/assets/2ea46877-7e28-4b20-a104-9d6b5483ce32" />
 
