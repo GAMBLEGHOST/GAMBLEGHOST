@@ -7,7 +7,8 @@
   <img src="https://readme-typing-svg.herokuapp.com?size=26&duration=4000&pause=1000&color=BLUE&center=true&vCenter=true&width=850&font=Fira+Code&weight=700&lines=꒰+%22+oOo~+Where+did+i+go!+%22+-+Connie+Boolynski+꒱" alt="typing animation">
  </h1>                         
 
-![1000009974](https://github.com/user-attachments/assets/7bf6406e-b327-47ba-9974-6d1ad2be5abe)
+![1000009958](https://github.com/user-attachments/assets/454f53b4-191e-4ff9-82fb-8ff7b4d74edf)
+
 
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
