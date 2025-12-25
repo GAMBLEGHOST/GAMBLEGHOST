@@ -11,13 +11,16 @@
 
 
 
-![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
+
 
 
 ![1000009995](https://github.com/user-attachments/assets/985faae4-932c-4be2-9d8a-b4a6747fcd74)
 ︵ [dni + int list](https://github.com/GAMBLEGHOST/if-you-wanna-int-)  ✦ [prns.cc](https://prns.cc/jqytq) ✦                  [strawpage](https://ghostly-painted-shells.straw.page) ✦            [atabook](https://tiaa.atabook.org)  ✦ [rentry](https://rentry.co/tiaaa)´ཀ` ![1000009995](https://github.com/user-attachments/assets/239d8ad2-9baa-41d0-8b14-98e86a38b742)
 
 ![1000008668](https://github.com/user-attachments/assets/edd8df57-914b-4cf1-ba12-24b7796617bd)
+
+![۶ེ༹༷♡︎ᣟ݂](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(۶ེ༹༷♡︎ᣟ݂))
+
 
 <img width="2443" height="1456" alt="1000010130" src="https://github.com/user-attachments/assets/2ea46877-7e28-4b20-a104-9d6b5483ce32" />
 
