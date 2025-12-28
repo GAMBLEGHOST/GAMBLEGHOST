@@ -1,6 +1,7 @@
-<img width="400" height="267" alt="1000012706" src="https://github.com/user-attachments/assets/df878689-9cbf-4f05-9a09-2f58e2e87a46" />
+<img width="736" height="414" alt="1000012708" src="https://github.com/user-attachments/assets/9a3e7c3d-bbd7-45e1-90f0-e82e462e7fe9" />
 
-#### ㅤㅤ◟ ♡︎
+
+##### ㅤㅤ◟ ♡︎
 
 ![✦](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(✦))
 
