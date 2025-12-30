@@ -1,7 +1,7 @@
 
 
 <img width="1862" height="1456" alt="1000009104" src="https://github.com/user-attachments/assets/4ca84d4e-4f1d-4e2d-8611-e57960b1e77e" />
-##### art by me ㅤ
+art by me do not steal ok? ok
 
 ![(✦))](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=(✦))
 
