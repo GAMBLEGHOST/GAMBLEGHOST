@@ -20,7 +20,7 @@ art by me do not steal ok? ok
 
 ![1000012715](https://github.com/user-attachments/assets/a9028f46-6e44-499a-80d5-ee7315b6feae)
 
-###### isnt it soo funny how they are soo canon and in love with eachother amiriteeㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+###### hahaa isnt it soo funny how they are soo canon and in love with eachother amiriiiteㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤ [αƚα](https://tiaa.atabook.org)bookㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ʂƚɾαɯ](https://ghostly-painted-shells.straw.page)pageㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ           ㅤㅤㅤ[ρɾɳʂ.](https://prns.cc/jqytq)cc
 
