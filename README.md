@@ -16,6 +16,17 @@ art by me do not steal ok? ok
 ### 🛹🔌 👻🩵 𝗕𝗬𝗜 : 𝗜𝗠 𝗧𝗛𝗘 𝗖𝗘𝗢 𝗢𝗙 𝗚𝗔𝗠𝗕𝗟𝗘𝗚𝗛𝗢𝗦𝗧 𝗔𝗡𝗗 𝗖𝗢𝗖𝗢𝗔𝗦𝗛𝗘𝗟𝗟 + 𝗥𝗔𝗕𝗕𝗜𝗧𝗪𝗢𝗟𝗙, 𝗛𝗔𝗖𝗞𝗘𝗗𝗠𝗔𝗖𝗛𝗜𝗡𝗘 ( 𝗩𝗘𝗘𝗥𝗢𝗡𝗜𝗖𝗔 𝗫 𝟭𝗫 ) 𝗔𝗡𝗗 𝗔𝗟𝗦𝗢 𝗝𝗘𝗟𝗟𝗬𝗙𝗟𝗬 ( 𝗙𝗥𝗜𝗟𝗟𝗘𝗗 𝗝𝗘𝗟𝗟𝗬𝗙𝗜𝗦𝗛 𝗫 𝗦𝗨𝗚𝗔𝗥𝗙𝗟𝗬 ) , 𝗗𝗢𝗡𝗧 𝗣𝗜𝗦𝗦 𝗠𝗘 𝗢𝗙 𝗕𝗬 𝗦𝗔𝗬𝗜𝗡𝗚 𝗬𝗢𝗨 𝗛𝗔𝗧𝗘 𝗜𝗧 , 𝗜𝗠 𝗡𝗢𝗧 𝗙𝗢𝗥𝗖𝗜𝗡𝗚 𝗬𝗢𝗨 𝗧𝗢 𝗟𝗜𝗞𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗛𝗜𝗣𝗦 + 𝗜 𝗥𝗘𝗦𝗣𝗘𝗖𝗧 𝗬𝗢𝗨 𝗜𝗙 𝗬𝗢𝗨 𝗗𝗢𝗡'𝗧 𝗟𝗜𝗞𝗘 𝗜𝗧! ,, ALSO PLS DNI IF YOU KIN/IRL CONNIE OR VEERONICA PLS!! I LIKE CONNIE AND VEERONICA WHEN THEY WERE OUT, I LIKE AND IRL CONNIE HEAVILY SINCE SHES OUT, IWEC VEERONICA/CONNIE FANS AND DOUBLES DNI(UID.)
 
 
+![1000012907](https://github.com/user-attachments/assets/861378ae-ba24-4782-8da7-9be8fcbaae91)
+![1000012906](https://github.com/user-attachments/assets/6a312645-75f2-4f9c-85db-0addd944b472)
+![1000012905](https://github.com/user-attachments/assets/c3283dcd-428b-4a9a-a1cb-71ffff540388)
+![1000012904](https://github.com/user-attachments/assets/a594de22-5d95-468b-9b5a-d44ed3d476c4)
+
+##### [creds](https://rentry.org/lavender-buttons) of these
+
+
+
+
+
 
 
 ![1000012715](https://github.com/user-attachments/assets/a9028f46-6e44-499a-80d5-ee7315b6feae)
