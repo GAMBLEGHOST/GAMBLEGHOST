@@ -21,7 +21,7 @@ art by me do not steal ok? ok
 ![1000012905](https://github.com/user-attachments/assets/c3283dcd-428b-4a9a-a1cb-71ffff540388)
 ![1000012904](https://github.com/user-attachments/assets/a594de22-5d95-468b-9b5a-d44ed3d476c4)
 
-##### [creds](https://rentry.org/lavender-buttons) of these
+#### [creds](https://rentry.org/lavender-buttons) for the buttons
 
 
 
