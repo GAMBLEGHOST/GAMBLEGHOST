@@ -1,4 +1,6 @@
 
+https://github.com/user-attachments/assets/1e4bef9e-1385-4f13-ace2-85a40e5d88c2
+
 
 <img width="1862" height="1456" alt="1000009104" src="https://github.com/user-attachments/assets/4ca84d4e-4f1d-4e2d-8611-e57960b1e77e" />
 art by me do not steal ok? ok
@@ -21,7 +23,8 @@ read this [document](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-
 ![1000012907](https://github.com/user-attachments/assets/861378ae-ba24-4782-8da7-9be8fcbaae91)
 ![1000012906](https://github.com/user-attachments/assets/6a312645-75f2-4f9c-85db-0addd944b472)
 ![1000012905](https://github.com/user-attachments/assets/c3283dcd-428b-4a9a-a1cb-71ffff540388)
-![1000012904](https://github.com/user-attachments/assets/a594de22-5d95-468b-9b5a-d44ed3d476c4)
+![1000012904](https://github.com/user-attachments/assets/a594de22-5d95-468b-9b5a-d44ed3d476c4)![1000012978](https://github.com/user-attachments/assets/2e483563-d4aa-4ba4-8ca6-f837ad17b25c)
+
 
 #### [creds](https://rentry.org/lavender-buttons) for the buttons
 
@@ -38,5 +41,18 @@ read this [document](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-
 ㅤ [αƚα](https://tiaa.atabook.org)bookㅤㅤㅤ𖹭ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ʂƚɾαɯ](https://ghostly-painted-shells.straw.page)pageㅤㅤㅤㅤ𖹭ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ           ㅤㅤㅤ[ρɾɳʂ.](https://prns.cc/jqytq)ccㅤㅤㅤㅤㅤ𖹭
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+#### real footage of me showing my graffitis😹😹
+
+![1000012951](https://github.com/user-attachments/assets/88b209bf-de74-4707-a106-9cc94dd086dc)
+![1000012954](https://github.com/user-attachments/assets/5db27ee6-cfa0-4634-877c-f8e11ae08e40)
+![1000012962](https://github.com/user-attachments/assets/2974fedf-ea0a-4ce1-bdc2-ff0b39b85db7)
+
+
+![1000012956](https://github.com/user-attachments/assets/500dd2b2-4b6e-450a-8c93-47aa5eb3efdd)
+
+
+ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
