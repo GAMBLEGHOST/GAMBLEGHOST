@@ -1,6 +1,4 @@
 
-https://github.com/user-attachments/assets/1e4bef9e-1385-4f13-ace2-85a40e5d88c2
-
 
 <img width="1862" height="1456" alt="1000009104" src="https://github.com/user-attachments/assets/4ca84d4e-4f1d-4e2d-8611-e57960b1e77e" />
 art by me do not steal ok? ok
