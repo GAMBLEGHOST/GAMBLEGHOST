@@ -21,7 +21,13 @@ read this [document](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-
 ![1000012907](https://github.com/user-attachments/assets/861378ae-ba24-4782-8da7-9be8fcbaae91)
 ![1000012906](https://github.com/user-attachments/assets/6a312645-75f2-4f9c-85db-0addd944b472)
 ![1000012905](https://github.com/user-attachments/assets/c3283dcd-428b-4a9a-a1cb-71ffff540388)
-![1000012904](https://github.com/user-attachments/assets/a594de22-5d95-468b-9b5a-d44ed3d476c4)![1000012978](https://github.com/user-attachments/assets/2e483563-d4aa-4ba4-8ca6-f837ad17b25c)
+![1000012904](https://github.com/user-attachments/assets/a594de22-5d95-468b-9b5a-d44ed3d476c4)![1000012978](https://github.com/user-attachments/assets/2e483563-d4aa-4ba4-8ca6-f837ad17b25c)![1000012992](https://github.com/user-attachments/assets/6d23ec26-def0-4874-a623-f11cf1a279f3)
+![1000012991](https://github.com/user-attachments/assets/34787c0c-e548-489f-b814-436b214d8cad)
+![1000012990](https://github.com/user-attachments/assets/2221a35a-b034-4752-ac7d-3ee394da44bc)
+
+
+
+
 
 
 #### [creds](https://rentry.org/lavender-buttons) for the buttons
@@ -34,7 +40,14 @@ read this [document](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-
 
 ![1000012715](https://github.com/user-attachments/assets/a9028f46-6e44-499a-80d5-ee7315b6feae)
 
+
+
+
 ###### hahaa isnt it soo funny how they are soo canon and in love with eachother amiriiiteㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+
+
 
 ㅤ [αƚα](https://tiaa.atabook.org)bookㅤㅤㅤ𖹭ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ʂƚɾαɯ](https://ghostly-painted-shells.straw.page)pageㅤㅤㅤㅤ𖹭ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ           ㅤㅤㅤ[ρɾɳʂ.](https://prns.cc/jqytq)ccㅤㅤㅤㅤㅤ𖹭
 
