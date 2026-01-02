@@ -49,7 +49,7 @@ read this [document](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-
 ![1000012962](https://github.com/user-attachments/assets/2974fedf-ea0a-4ce1-bdc2-ff0b39b85db7)
 
 
-![1000012956](https://github.com/user-attachments/assets/500dd2b2-4b6e-450a-8c93-47aa5eb3efdd)
+![1000012956](https://github.com/user-attachments/assets/500dd2b2-4b6e-450a-8c93-47aa5eb3efdd) 
 
 
 ㅤㅤㅤㅤ
