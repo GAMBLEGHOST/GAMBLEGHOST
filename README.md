@@ -42,7 +42,7 @@ read this [document](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-#### real footage of me showing my graffitis😹😹
+#### real footage of me doing grafitti and drawings outside 😹
 
 ![1000012951](https://github.com/user-attachments/assets/88b209bf-de74-4707-a106-9cc94dd086dc)
 ![1000012954](https://github.com/user-attachments/assets/5db27ee6-cfa0-4634-877c-f8e11ae08e40)
