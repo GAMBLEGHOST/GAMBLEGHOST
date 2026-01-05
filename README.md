@@ -16,6 +16,8 @@
 
 
 <img width="1862" height="1456" alt="1000009106" src="https://github.com/user-attachments/assets/577d971e-edcf-4125-920b-30fabe4b6f9b" />
+
+
 #### yuri 💝💝 DNS MY ART
 
 
@@ -23,7 +25,6 @@
 <img width="735" height="490" alt="1000013180" src="https://github.com/user-attachments/assets/21f56397-08f6-46ef-a3ac-5daac3b1993f" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 [READ THIS (DOCUMENT)](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk)
 ㅤ
 
@@ -40,9 +41,12 @@
 
 
 ![1000013057](https://github.com/user-attachments/assets/84696a6d-8f6a-4652-9918-348622e9861f)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ![1000013044](https://github.com/user-attachments/assets/ee22c309-0448-4a22-af4a-fff191b9c03c)
-![1000013045](https://github.com/user-attachments/assets/4fabbae7-5019-4679-b579-0b35c9aa538c)ㅤㅤㅤㅤㅤㅤㅤㅤ ![1000013046](https://github.com/user-attachments/assets/85d71868-bf45-4534-8b90-99670ac15676)ㅤ
+
+
+
+![1000013044](https://github.com/user-attachments/assets/ee22c309-0448-4a22-af4a-fff191b9c03c)
+![1000013045](https://github.com/user-attachments/assets/4fabbae7-5019-4679-b579-0b35c9aa538c)
+![1000013046](https://github.com/user-attachments/assets/85d71868-bf45-4534-8b90-99670ac1567)
 ![1000013047](https://github.com/user-attachments/assets/c77b4d4c-0476-463e-aff1-e95eeeaf1d01)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
