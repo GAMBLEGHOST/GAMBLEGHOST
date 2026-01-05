@@ -30,12 +30,18 @@
 
 
 ![1000013082](https://github.com/user-attachments/assets/bb781a0e-162b-4507-953d-8df2feb4765b)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
 ![1000013060](https://github.com/user-attachments/assets/6199a565-748a-4946-8802-edaf92e527c5)
+
+
 ![1000013061](https://github.com/user-attachments/assets/382ad705-20a5-4ba4-954c-c2e59825db61)
+
+
 ![1000013059](https://github.com/user-attachments/assets/75ac7a78-8ec3-4564-a89e-e6547ec0db8d)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ
 ㅤㅤ
 ![(✦))](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=(✦))
 
@@ -46,7 +52,6 @@
 
 ![1000013044](https://github.com/user-attachments/assets/ee22c309-0448-4a22-af4a-fff191b9c03c)
 ![1000013045](https://github.com/user-attachments/assets/4fabbae7-5019-4679-b579-0b35c9aa538c)
-![1000013046](https://github.com/user-attachments/assets/85d71868-bf45-4534-8b90-99670ac1567)
 ![1000013047](https://github.com/user-attachments/assets/c77b4d4c-0476-463e-aff1-e95eeeaf1d01)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
