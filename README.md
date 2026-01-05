@@ -1,21 +1,40 @@
 
 
 <img width="1280" height="395" alt="1000013012" src="https://github.com/user-attachments/assets/54ebc0bd-39a2-4098-9323-e0f5c5e83b87" />ㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![1000013086](https://github.com/user-attachments/assets/38814895-ac9d-4a1f-8552-ccf29347e667)
 
-### 🛹🔌 👻🩵 𝗕𝗬𝗜 : 𝗜𝗠 𝗧𝗛𝗘 𝗖𝗘𝗢 𝗢𝗙 𝗚𝗔𝗠𝗕𝗟𝗘𝗚𝗛𝗢𝗦𝗧 𝗔𝗡𝗗 𝗖𝗢𝗖𝗢𝗔𝗦𝗛𝗘𝗟𝗟 + 𝗥𝗔𝗕𝗕𝗜𝗧𝗪𝗢𝗟𝗙, 𝗛𝗔𝗖𝗞𝗘𝗗𝗠𝗔𝗖𝗛𝗜𝗡𝗘 ( 𝗩𝗘𝗘𝗥𝗢𝗡𝗜𝗖𝗔 𝗫 𝟭𝗫 ) 𝗔𝗡𝗗 𝗔𝗟𝗦𝗢 𝗝𝗘𝗟𝗟𝗬𝗙𝗟𝗬 ( 𝗙𝗥𝗜𝗟𝗟𝗘𝗗 𝗝𝗘𝗟𝗟𝗙𝗜𝗦𝗛 𝗫 𝗦𝗨𝗚𝗔𝗥𝗙𝗟𝗬 ) , 𝗗𝗢𝗡𝗧 𝗣𝗜𝗦𝗦 𝗠𝗘 𝗢𝗙 𝗕𝗬 𝗦𝗔𝗬𝗜𝗡𝗚 𝗬𝗢𝗨 𝗗𝗢𝗡𝗧 𝗟𝗜𝗞𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗛𝗜𝗣𝗦. 𝗜 𝗥𝗘𝗦𝗣𝗘𝗖𝗧 𝗬𝗢𝗨 𝗜𝗙 𝗬𝗢𝗨 𝗗𝗢𝗡'𝗧 𝗟𝗜𝗞𝗘 𝗜𝗧.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![1000013047](https://github.com/user-attachments/assets/873ea2a5-3bbb-4c60-842d-9ef9c1c28049)![1000013044](https://github.com/user-attachments/assets/d3c58f1a-7c78-4a4d-b1b8-a7401fbc5441)
+
+##### ˑ༄ ARTIST / COSPLAYER. <img width="600" height="600" alt="1000013073" src="https://github.com/user-attachments/assets/7e7c76b0-8577-4b26-b73c-23268b216f94" />
+
+
+
+
+####  <img width="1280" height="1045" alt="1000013075" src="https://github.com/user-attachments/assets/264cdfaf-fa7c-44f9-b84e-8a90d1020b6f" />
+  🛹🔌 👻🩵 𝗕𝗬𝗜 : 𝗜𝗠 𝗧𝗛𝗘 𝗖𝗘𝗢 𝗢𝗙 𝗚𝗔𝗠𝗕𝗟𝗘𝗚𝗛𝗢𝗦𝗧 𝗔𝗡𝗗 𝗖𝗢𝗖𝗢𝗔𝗦𝗛𝗘𝗟𝗟 + 𝗥𝗔𝗕𝗕𝗜𝗧𝗪𝗢𝗟𝗙, 𝗛𝗔𝗖𝗞𝗘𝗗𝗠𝗔𝗖𝗛𝗜𝗡𝗘 ( 𝗩𝗘𝗘𝗥𝗢𝗡𝗜𝗖𝗔 𝗫 𝟭𝗫 ) 𝗔𝗡𝗗 𝗔𝗟𝗦𝗢 𝗝𝗘𝗟𝗟𝗬𝗙𝗟𝗬 ( 𝗙𝗥𝗜𝗟𝗟𝗘𝗗 𝗝𝗘𝗟𝗟𝗙𝗜𝗦𝗛 𝗫 𝗦𝗨𝗚𝗔𝗥𝗙𝗟𝗬 ) , 𝗗𝗢𝗡𝗧 𝗣𝗜𝗦𝗦 𝗠𝗘 𝗢𝗙 𝗕𝗬 𝗦𝗔𝗬𝗜𝗡𝗚 𝗬𝗢𝗨 𝗗𝗢𝗡𝗧 𝗟𝗜𝗞𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗛𝗜𝗣𝗦. 𝗜 𝗥𝗘𝗦𝗣𝗘𝗖𝗧 𝗬𝗢𝗨 𝗜𝗙 𝗬𝗢𝗨 𝗗𝗢𝗡'𝗧 𝗟𝗜𝗞𝗘 𝗜𝗧,, 𝗗𝗡𝗜 𝗖𝗢𝗡𝗡𝗜𝗘 𝗗𝗢𝗨𝗕𝗟𝗘𝗦 𝗜𝗪𝗘𝗖 𝗩𝗘𝗘𝗥𝗢𝗡𝗜𝗖𝗔 𝗗𝗢𝗨𝗕𝗟𝗘𝗦. 𝗜 𝗣𝗥𝗘𝗙𝗘𝗥 𝗔𝗗𝗨𝗟𝗧𝗦 𝗔𝗡𝗗 𝗖𝗛𝗜𝗟𝗗𝗥𝗘𝗡 𝗧𝗢 𝗡𝗢𝗧 𝗜𝗡𝗧 (𝘂𝗻𝗹𝗲𝘀𝘀 𝗶𝗸 𝘆𝗼𝘂)ㅤ𝗔𝗟𝗦𝗢 𝗥𝗟𝗟𝗬 𝗔𝗪𝗞𝗪𝗔𝗥𝗗 𝗧𝗢 𝗜𝗡𝗧 𝗙𝗜𝗥𝗦𝗧 𝗪𝗛𝗘𝗡 𝗠𝗨𝗧𝗨𝗔𝗟𝗦.ㅤ𝗜 𝗕𝗟𝗢𝗖𝗞 𝗙𝗥𝗘𝗘𝗟𝗬 𝗜𝗙 𝗬𝗢𝗨 𝗧𝗘𝗔𝗦𝗘 𝗠𝗘 𝗕𝗬 𝗠𝗬 𝗙/𝗢'𝗦 𝗜 𝗕𝗟𝗢𝗖𝗞 𝗙𝗥𝗘𝗘𝗟𝗬 (𝘂𝗻𝗹𝗲𝘀𝘀 𝗶𝗳 𝘄𝗲 𝗮𝗿𝗲 𝗰𝗹𝗼𝘀𝗲.) (𝟭𝗫𝟭𝗫𝟭𝗫𝟭 𝗚𝗜𝗚𝗜 𝗔𝗡𝗗 𝗞𝗔𝗥𝗟) ㅤㅤ<img width="1280" height="1045" alt="1000013075" src="https://github.com/user-attachments/assets/7be9ef9e-f1f7-4f22-9154-afdf6178ffe7" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+![1000013070](https://github.com/user-attachments/assets/4f775db3-2318-4072-82aa-99ee59afaf53)
+
+ㅤ
+
+![1000013082](https://github.com/user-attachments/assets/bb781a0e-162b-4507-953d-8df2feb4765b)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+[READ THIS DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013060](https://github.com/user-attachments/assets/6199a565-748a-4946-8802-edaf92e527c5)
 ![1000013061](https://github.com/user-attachments/assets/382ad705-20a5-4ba4-954c-c2e59825db61)
 ![1000013059](https://github.com/user-attachments/assets/75ac7a78-8ec3-4564-a89e-e6547ec0db8d)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 🂡ㅤㅤ
+![(✦))](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=(✦))
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![(✦))](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=(✦))
 
 
-[READ THIS DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
 <img width="1280" height="395" alt="1000013013" src="https://github.com/user-attachments/assets/a52be1ef-2cc8-4d30-8b2b-aff9188d5be8" />
