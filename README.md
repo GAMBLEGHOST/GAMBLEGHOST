@@ -1,8 +1,9 @@
 
 
 <img width="1280" height="395" alt="1000013012" src="https://github.com/user-attachments/assets/54ebc0bd-39a2-4098-9323-e0f5c5e83b87" />ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<img width="736" height="736" alt="1000013183" src="https://github.com/user-attachments/assets/fd8caf15-b11c-47ad-8913-c20e6d9e7131" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![1000013081](https://github.com/user-attachments/assets/e223c416-2a53-4b70-96a2-ef3dbf0c551c)
+
 
 
 ##### .𓈒⌖ˑ༄ ARTIST / COSPLAYER.
@@ -12,9 +13,20 @@
 
 ####
 𓊆  🛹🔌 👻🩵 𝗕𝗬𝗜 : 𝗜𝗠 𝗧𝗛𝗘 𝗖𝗘𝗢 𝗢𝗙 𝗚𝗔𝗠𝗕𝗟𝗘𝗚𝗛𝗢𝗦𝗧 𝗔𝗡𝗗 𝗖𝗢𝗖𝗢𝗔𝗦𝗛𝗘𝗟𝗟 + 𝗥𝗔𝗕𝗕𝗜𝗧𝗪𝗢𝗟𝗙, 𝗛𝗔𝗖𝗞𝗘𝗗𝗠𝗔𝗖𝗛𝗜𝗡𝗘 ( 𝗩𝗘𝗘𝗥𝗢𝗡𝗜𝗖𝗔 𝗫 𝟭𝗫 ) 𝗔𝗡𝗗 𝗔𝗟𝗦𝗢 𝗝𝗘𝗟𝗟𝗬𝗙𝗟𝗬 ( 𝗙𝗥𝗜𝗟𝗟𝗘𝗗 𝗝𝗘𝗟𝗟𝗙𝗜𝗦𝗛 𝗫 𝗦𝗨𝗚𝗔𝗥𝗙𝗟𝗬 ) , 𝗗𝗢𝗡𝗧 𝗣𝗜𝗦𝗦 𝗠𝗘 𝗢𝗙 𝗕𝗬 𝗦𝗔𝗬𝗜𝗡𝗚 𝗬𝗢𝗨 𝗗𝗢𝗡𝗧 𝗟𝗜𝗞𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗛𝗜𝗣𝗦. 𝗜 𝗥𝗘𝗦𝗣𝗘𝗖𝗧 𝗬𝗢𝗨 𝗜𝗙 𝗬𝗢𝗨 𝗗𝗢𝗡'𝗧 𝗟𝗜𝗞𝗘 𝗜𝗧,, 𝗗𝗡𝗜 𝗖𝗢𝗡𝗡𝗜𝗘 𝗗𝗢𝗨𝗕𝗟𝗘𝗦 𝗜𝗪𝗘𝗖 𝗩𝗘𝗘𝗥𝗢𝗡𝗜𝗖𝗔 𝗗𝗢𝗨𝗕𝗟𝗘𝗦. 𝗜 𝗣𝗥𝗘𝗙𝗘𝗥 𝗔𝗗𝗨𝗟𝗧𝗦 𝗔𝗡𝗗 𝗖𝗛𝗜𝗟𝗗𝗥𝗘𝗡 𝗧𝗢 𝗡𝗢𝗧 𝗜𝗡𝗧 (𝘂𝗻𝗹𝗲𝘀𝘀 𝗶𝗸 𝘆𝗼𝘂)ㅤ𝗔𝗟𝗦𝗢 𝗥𝗟𝗟𝗬 𝗔𝗪𝗞𝗪𝗔𝗥𝗗 𝗧𝗢 𝗜𝗡𝗧 𝗙𝗜𝗥𝗦𝗧 𝗪𝗛𝗘𝗡 𝗠𝗨𝗧𝗨𝗔𝗟𝗦.ㅤ𝗜 𝗕𝗟𝗢𝗖𝗞 𝗙𝗥𝗘𝗘𝗟𝗬 𝗜𝗙 𝗬𝗢𝗨 𝗧𝗘𝗔𝗦𝗘 𝗠𝗘 𝗕𝗬 𝗠𝗬 𝗙/𝗢'𝗦 𝗜 𝗕𝗟𝗢𝗖𝗞 𝗙𝗥𝗘𝗘𝗟𝗬 (𝘂𝗻𝗹𝗲𝘀𝘀 𝗶𝗳 𝘄𝗲 𝗮𝗿𝗲 𝗰𝗹𝗼𝘀𝗲.) (𝟭𝗫𝟭𝗫𝟭𝗫𝟭 𝗚𝗜𝗚𝗜 𝗔𝗡𝗗 𝗞𝗔𝗥𝗟) 🂡ㅤ 𓊇ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+<img width="1862" height="1456" alt="1000009106" src="https://github.com/user-attachments/assets/577d971e-edcf-4125-920b-30fabe4b6f9b" />
+#### yuri 💝💝 DNS MY ART
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img width="735" height="490" alt="1000013180" src="https://github.com/user-attachments/assets/21f56397-08f6-46ef-a3ac-5daac3b1993f" />
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 [READ THIS (DOCUMENT)](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk)
 ㅤ
+
 
 ![1000013082](https://github.com/user-attachments/assets/bb781a0e-162b-4507-953d-8df2feb4765b)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
