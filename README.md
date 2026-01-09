@@ -30,10 +30,8 @@
 
 
 
-<img width="2108" height="3137" alt="1000010132" src="https://github.com/user-attachments/assets/5cda670b-414a-4959-90f6-4aa1f2f91d6f" />
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-#### art by m🎉🎉🎉🎉
+![1000005408](https://github.com/user-attachments/assets/be8281b5-8896-420d-9f1e-937924d8e703)
+#### art by m🎉🎉🎉
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -59,6 +57,23 @@
 
 
 ![(✦))](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=(✦))
+
+
+
+<img width="99" height="56" alt="1000007918" src="https://github.com/user-attachments/assets/600d4f9f-29d4-4e96-bee4-461db279708e" />
+
+
+<img width="99" height="56" alt="1000004280" src="https://github.com/user-attachments/assets/a4c82c7d-004c-4781-b808-258496926756" />
+
+
+
+<img width="99" height="56" alt="1000007897" src="https://github.com/user-attachments/assets/546930a0-e37e-4539-92a1-1dfcfd439815" />
+
+
+
+![1000007898](https://github.com/user-attachments/assets/7ba08629-019f-4b90-af9f-5cd9c38f3bb7)
+
+
 
 
 ![1000013057](https://github.com/user-attachments/assets/84696a6d-8f6a-4652-9918-348622e9861f)
