@@ -5,6 +5,9 @@
 ![1000013230](https://github.com/user-attachments/assets/de32f4f6-3cd5-4501-8da7-c737b56048db)
 
 
+![1000013312](https://github.com/user-attachments/assets/0e9da18c-7e43-47e3-bf58-ce3c31fb1c07)
+
+
 
 ##### .𓈒⌖ˑ༄ ARTIST / COSPLAYER.
 
@@ -21,37 +24,16 @@
     width="220"
   />
 </p>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?
-font=Nunito
-&size=12
-&duration=3000
-&pause=1000
-&color=B76E79
-&center=true
-&vCenter=true
-&width=520
-&lines=𓊆+“+SKKKAAAAATTTTTTTIIIIIIINNNNNGGGGG+”+༘+.+VEERONICA+𖹭+𓊇"
-    
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?
-font=Nunito
-&size=12
-&duration=3000
-&pause=1000
-&color=9BB7E0
-&center=true
-&vCenter=true
-&width=450
-&lines=𓊆+“+oOo~+Where+did+i+go+!+”+࿔།+CONNIE+BOOLYNSKI+𖹭+𓊇" />
-</p>
 
 
-<img width="1862" height="1456" alt="1000009106" src="https://github.com/user-attachments/assets/577d971e-edcf-4125-920b-30fabe4b6f9b" />
+![1000013314](https://github.com/user-attachments/assets/cb506b53-2701-4372-92a5-41fac289f0d8)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-#### yuri 💝💝 DNS MY ART
+
+
+<img width="2108" height="3137" alt="1000010132" src="https://github.com/user-attachments/assets/5cda670b-414a-4959-90f6-4aa1f2f91d6f" />
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+#### art by m🎉🎉🎉🎉
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
