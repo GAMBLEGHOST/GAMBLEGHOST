@@ -17,7 +17,7 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="...">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31csjciawoskkazx645babnbrpoi&cover_image=true&theme=default&show_offline=false&background_color=121212">
   </a>
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
