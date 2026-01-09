@@ -22,6 +22,31 @@
   />
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?
+font=Nunito
+&size=12
+&duration=3000
+&pause=1000
+&color=B76E79
+&center=true
+&vCenter=true
+&width=520
+&lines=𓊆+“+SKKKAAAAATTTTTTTIIIIIIINNNNNGGGGG+”+༘+.+VEERONICA+𖹭+𓊇"
+    
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?
+font=Nunito
+&size=12
+&duration=3000
+&pause=1000
+&color=9BB7E0
+&center=true
+&vCenter=true
+&width=450
+&lines=𓊆+“+oOo~+Where+did+i+go+!+”+࿔།+CONNIE+BOOLYNSKI+𖹭+𓊇" />
+</p>
+
 
 <img width="1862" height="1456" alt="1000009106" src="https://github.com/user-attachments/assets/577d971e-edcf-4125-920b-30fabe4b6f9b" />
 
