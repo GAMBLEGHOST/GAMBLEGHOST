@@ -19,6 +19,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤ
 
+![janeveeronica](https://github.com/user-attachments/assets/88d066b6-eee5-4118-ae27-ec834e1f4972)
+##### ??? hi i love two time x veeronica also jane doe x veeronic also 1x x veeronica ok bye-
 
