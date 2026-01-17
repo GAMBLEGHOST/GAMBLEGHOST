@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤ
 ![1000013642](https://github.com/user-attachments/assets/47fb6740-273a-448c-85f9-b25b98b3668a)
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013663](https://github.com/user-attachments/assets/bd365034-7744-4cb3-bdf8-28a5a616df57)
 
 
@@ -16,9 +16,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤ𝅄𓈒꒰⁠ ![₊།𖹭࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=₊།𖹭࿔) ꒱⁠𓈒𝅄
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
+#### READ THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk) PLEASE!!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ![janeveeronica](https://github.com/user-attachments/assets/88d066b6-eee5-4118-ae27-ec834e1f4972)
 ##### ??? hi i love two time x veeronica also jane doe x veeronic also 1x x veeronica ok bye-
@@ -27,4 +28,4 @@
 ![1000013663](https://github.com/user-attachments/assets/3fdad5b9-7914-4ce3-b1fc-1c0a4d80ec80)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013736](https://github.com/user-attachments/assets/a06f8ad8-3112-47d2-8809-bf7adededdc4)
-me 𝓼𝓾𝓹𝓮𝓻 𝓻𝓮𝓪𝓬𝓽𝓲𝓸𝓷
+ㅤㅤㅤㅤㅤme 𝓼𝓾𝓹𝓮𝓻 𝓻𝓮𝓪𝓬𝓽𝓲𝓸𝓷
