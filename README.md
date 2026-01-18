@@ -18,7 +18,7 @@
 ㅤㅤㅤㅤㅤ𝅄𓈒꒰⁠ ![₊།𖹭࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=₊།𖹭࿔) ꒱⁠𓈒𝅄
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-#### READ THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk) PLEASE!!
+#### ㅤREAD THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk) PLEASE!!
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ![janeveeronica](https://github.com/user-attachments/assets/88d066b6-eee5-4118-ae27-ec834e1f4972)
