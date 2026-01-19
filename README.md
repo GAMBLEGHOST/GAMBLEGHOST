@@ -21,11 +21,9 @@
 #### ㅤREAD THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk) PLEASE!!
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
+![1000013314](https://github.com/user-attachments/assets/0ce067f8-7d76-40f3-97b8-610c065d8842)ㅤ
 
-![1000013299](https://github.com/user-attachments/assets/cde8f2a8-ad96-4066-9b08-4046ebef225e)
-ㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013663](https://github.com/user-attachments/assets/3fdad5b9-7914-4ce3-b1fc-1c0a4d80ec80)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013736](https://github.com/user-attachments/assets/a06f8ad8-3112-47d2-8809-bf7adededdc4)
