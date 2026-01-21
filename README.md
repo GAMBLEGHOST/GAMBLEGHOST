@@ -21,7 +21,7 @@
 
 
 
-#### ![1000013959](https://github.com/user-attachments/assets/1e2fa872-b3d5-4f6b-8575-daa70abb04d8) ㅤ︵ ﹑⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.![1000013958](https://github.com/user-attachments/assets/1c604dc8-d94b-4082-a6cd-9ea037359f65)
+#### ![1000013959](https://github.com/user-attachments/assets/1e2fa872-b3d5-4f6b-8575-daa70abb04d8) ㅤ ⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.ㅤ![1000013958](https://github.com/user-attachments/assets/1c604dc8-d94b-4082-a6cd-9ea037359f65)
 
 
 
@@ -45,13 +45,14 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 #### 
-ㅤㅤ︵ㅤ𖹭ㅤREAD THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk).
+ㅤㅤ︵ㅤㅤREAD THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk).
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013688](https://github.com/user-attachments/assets/3a59913f-3e85-4366-a527-673c1b60baa5)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![1000013968](https://github.com/user-attachments/assets/6f9b50de-fce9-4920-ba5e-51ed85cf7fa6)
+![1000013924](https://github.com/user-attachments/assets/0675756a-fe60-4a68-9a2d-78be20edfc68)
+
 
 
 
