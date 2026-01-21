@@ -1,16 +1,14 @@
 ![1000013688](https://github.com/user-attachments/assets/75ecb8d5-5419-401e-b9f1-1c2bc0acf09d)
 ㅤㅤㅤㅤㅤㅤㅤ
+
 <img width="736" height="736" alt="1000013934" src="https://github.com/user-attachments/assets/4879ca23-cef0-4795-b794-b571aa12a256" />
 
 
-
-
 ㅤ
-![1000013663](https://github.com/user-attachments/assets/bd365034-7744-4cb3-bdf8-28a5a616df57)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+![1000013663](https://github.com/user-attachments/assets/bd365034-7744-4cb3-bdf8-28a5a616df57)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Poppins:ital,wght@0,600&size=25&duration=4800&pause=1700&color=F7C1D9&center=true&vCenter=true&width=920&lines=%C2%ABOoO~+Where+did+i+go...%C2%BB;%C2%ABSKAAATTIIIINNGGGGG!!%C2%BB;%C2%AByou+dare+to+step+to+the+snowy+forest?%C2%BB" />
+  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=20&color=F2C6D3&center=true&vCenter=true&width=450&lines=%E2%80%9C+oOo~+where+did+i+go!+%E2%80%9C" />
 </p>
 
 <p align="center">
@@ -22,12 +20,16 @@
 𓊆 ![1000013960](https://github.com/user-attachments/assets/9b48ffea-2a06-427e-888c-62c18ff0e93f) 𝐢𝐦 ㅤ𝐚𝐥𝐰𝐚𝐲𝐬 ㅤ𝐚𝐭ㅤ 𝐭𝐡𝐞 ㅤ𝐬𝐞𝐜𝐨𝐧𝐝 ㅤ𝐝𝐰ㅤ 𝐚𝐫𝐞𝐚.ㅤ 𝐢𝐟 ㅤ𝐲𝐨𝐮 ㅤ𝐬𝐞𝐞ㅤ 𝐦𝐞,ㅤ 𝐲𝐨𝐮 ㅤ𝐜𝐚𝐧ㅤ 𝐜+𝐡 ㅤ𝐟𝐫𝐞𝐞𝐥𝐲 ㅤ𝐮𝐧𝐥𝐞𝐬𝐬 ㅤ𝐦𝐲ㅤ 𝐧𝐚𝐦𝐞 ㅤ𝐬𝐚𝐲𝐬 ㅤ𝐝𝐧𝐢 ㅤ𝐨𝐫 ㅤ𝐢𝐦 ㅤ𝐰𝐢𝐭𝐡ㅤ 𝐬𝐨𝐦𝐞𝐨𝐧𝐞. ![1000013962](https://github.com/user-attachments/assets/f152a0fa-b115-440b-995f-03cd756d4ce1)  𓊇ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-##### ㅤ︵ ﹑⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.
+
+#### ![1000013959](https://github.com/user-attachments/assets/1e2fa872-b3d5-4f6b-8575-daa70abb04d8) ㅤ︵ ﹑⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.![1000013958](https://github.com/user-attachments/assets/1c604dc8-d94b-4082-a6cd-9ea037359f65)
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤৎ𝅄𓈒꒰⁠ ![₊།𖹭࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=₊།𖹭࿔) ꒱⁠𓈒𝅄𝜗
+ㅤㅤㅤ![1000013957](https://github.com/user-attachments/assets/a2201665-b850-4ea0-a981-17fcadc73459)
+ৎ𝅄𓈒꒰⁠ ![₊།𖹭࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=₊།𖹭࿔) ꒱⁠𓈒𝅄𝜗![1000013957](https://github.com/user-attachments/assets/37d75f04-c6ed-4cdf-ab45-3c3a4cc72b8e)
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
@@ -35,14 +37,17 @@
 
 
 
-ㅤㅤ![1000013946](https://github.com/user-attachments/assets/a8bd9429-2aaa-488f-8cd7-b29865391f03)
+ㅤㅤ
 ![1000013945](https://github.com/user-attachments/assets/ac1ada5d-9ff0-48c7-9948-82979ed1fa1d)
+![1000013946](https://github.com/user-attachments/assets/a8bd9429-2aaa-488f-8cd7-b29865391f03)
 ![1000013944](https://github.com/user-attachments/assets/07e2dedb-c939-4071-bb91-f9df7e3e8b9b)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-#### ㅤㅤ𖹭ㅤREAD THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk).
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+#### 
+ㅤㅤ︵ㅤ𖹭ㅤREAD THIS [DOCUMENT](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk).
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013688](https://github.com/user-attachments/assets/3a59913f-3e85-4366-a527-673c1b60baa5)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
