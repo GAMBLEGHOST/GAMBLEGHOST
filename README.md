@@ -58,7 +58,8 @@
 ![1000013688](https://github.com/user-attachments/assets/3a59913f-3e85-4366-a527-673c1b60baa5)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![1000013924](https://github.com/user-attachments/assets/0675756a-fe60-4a68-9a2d-78be20edfc68)
+![1000014016](https://github.com/user-attachments/assets/e81d44b6-416d-40c4-a5c8-c40c01f1e699)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![1000013663](https://github.com/user-attachments/assets/3fdad5b9-7914-4ce3-b1fc-1c0a4d80ec80)
