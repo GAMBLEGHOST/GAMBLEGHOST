@@ -56,7 +56,8 @@
 ![1000013688](https://github.com/user-attachments/assets/3a59913f-3e85-4366-a527-673c1b60baa5)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![1000014035](https://github.com/user-attachments/assets/b2162071-ecaf-4610-b097-912ac64243ec)
+<img width="4376" height="2800" alt="1000014062" src="https://github.com/user-attachments/assets/2c02d245-b987-4d2c-8c49-8a7d7d13d2f2" />
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
