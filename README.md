@@ -11,9 +11,7 @@
   <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=20&color=F2C6D3&center=true&vCenter=true&width=450&lines=%E2%80%9C+oOo~+where+did+i+go!+%E2%80%9C" />
 </p>
 
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Poppins:ital,wght@0,600&size=25&duration=4200&pause=1600&color=F7C1D9&center=true&vCenter=true&width=720&lines=%C2%ABcosplayer+%C2%B7+programmer+%C2%B7+artist...%C2%BB" />
-</p>
+
 
 𓊆 ![1000013947](https://github.com/user-attachments/assets/57e12245-fbd3-47a7-9493-6b8b9cd6bd5f) 𝐨𝐧𝐭𝐚𝐛ㅤ 𝐨𝐫 ㅤ𝐨𝐟𝐟𝐭𝐚𝐛ㅤ 𝐢𝐟ㅤ 𝐚𝐜𝐭𝐢𝐯𝐞ㅤ 𝐨𝐧 ㅤ𝐩𝐭ㅤ 𝐦𝐨𝐬𝐭 ㅤ𝐨𝐟 ㅤ𝐭𝐡𝐞 ㅤ𝐭𝐢𝐦𝐞, ㅤ𝐢𝐟 ㅤ𝐲𝐨𝐮ㅤ 𝐰𝐚𝐧𝐭ㅤ 𝐭𝐨ㅤ 𝐛𝐞 ㅤ𝐟𝐫𝐢𝐞𝐧𝐝𝐬, ㅤ𝐜𝐡𝐞𝐜𝐤ㅤ 𝐥𝐢𝐧𝐤𝐬ㅤ 𝐟𝐢𝐫𝐬𝐭! ![1000013948](https://github.com/user-attachments/assets/1c130544-e675-481e-a5dc-f15191850c29)  𓊇ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
