@@ -1,7 +1,9 @@
 ![1000013688](https://github.com/user-attachments/assets/75ecb8d5-5419-401e-b9f1-1c2bc0acf09d)
 ㅤㅤㅤㅤㅤㅤㅤ
 
-<img width="736" height="736" alt="1000013934" src="https://github.com/user-attachments/assets/4879ca23-cef0-4795-b794-b571aa12a256" />
+![1000014424](https://github.com/user-attachments/assets/096b0dc6-4544-4dd4-b248-570d078a01cd)
+##### credits to the artist
+
 
 
 ㅤ
