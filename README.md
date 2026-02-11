@@ -21,8 +21,8 @@
 
 
 
-#### ㅤ ⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+#### ㅤ ⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+#### ㅤㅤㅤㅤcheck my [dw oc! (wip)](https://docs.google.com/document/d/1c7KitTL--jHrPzA2ou40ZHALnTpreuFqyGv9dGoHaVw/edit?usp=drivesdk)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
