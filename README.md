@@ -22,9 +22,9 @@
 
 
 #### ㅤ ⟡ㅤㅤgfxㅤ/ㅤgraphics ㅤ&ㅤ frames ㅤi ㅤputㅤ inㅤ my ㅤreadmeㅤ isㅤ made ㅤby ㅤme, ㅤdont ㅤsteal ㅤanyㅤ of ㅤthem ㅤthanks.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-#### ㅤㅤㅤㅤcheck my [dw oc! (wip)](https://docs.google.com/document/d/1c7KitTL--jHrPzA2ou40ZHALnTpreuFqyGv9dGoHaVw/edit?usp=drivesdk)
+####  check my [dw ocs](https://docs.google.com/document/d/1c7KitTL--jHrPzA2ou40ZHALnTpreuFqyGv9dGoHaVw/edit?usp=drivesdk) if ur interested :3
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-#### ㅤㅤㅤㅤ read this [kazi/fang document callout](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk)
+#### ㅤㅤ read this (doc) [kazi callout](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0/edit?usp=drivesdk)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤ![1000013957](https://github.com/user-attachments/assets/a2201665-b850-4ea0-a981-17fcadc73459)
