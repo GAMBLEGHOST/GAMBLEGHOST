@@ -1,8 +1,9 @@
 ![1000013688](https://github.com/user-attachments/assets/75ecb8d5-5419-401e-b9f1-1c2bc0acf09d)
 ㅤㅤㅤㅤㅤㅤㅤ
 
-![1000014424](https://github.com/user-attachments/assets/096b0dc6-4544-4dd4-b248-570d078a01cd)
-##### ㅤㅤㅤㅤ︵ㅤcredits to the artist
+<img width="3653" height="2800" alt="1000014688" src="https://github.com/user-attachments/assets/dc00d4dd-f7a9-412e-9d40-f4f880d24f8b" />
+
+##### ㅤㅤㅤㅤill revamp this is wip
 
 
 
