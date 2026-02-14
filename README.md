@@ -16,7 +16,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=20&color=F2C6D3&center=true&vCenter=true&width=450&lines=%E2%80%9C+oOo~+where+did+i+go!+%E2%80%9C" />ㅤㅤㅤㅤㅤㅤㅤㅤ![1000013665](https://github.com/user-attachments/assets/19f334a2-ea62-419a-a736-7fd86889b027)
+  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=20&color=F2C6D3&center=true&vCenter=true&width=450&lines=%E2%80%9C+oOo~+where+did+i+go!+%E2%80%9C" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ![1000013665](https://github.com/user-attachments/assets/19f334a2-ea62-419a-a736-7fd86889b027)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤ![1000014785](https://github.com/user-attachments/assets/93fb6d0a-44b5-4801-b2fc-bb3cbe768e62)
