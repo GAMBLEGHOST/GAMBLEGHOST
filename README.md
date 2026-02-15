@@ -11,12 +11,11 @@
 
 ![1000013663](https://github.com/user-attachments/assets/bd365034-7744-4cb3-bdf8-28a5a616df57)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤ[atabook](https://connieboolynski.atabook.org) 
-ㅤㅤㅤㅤ[prns.cc](https://pronouns.cc/@connieboolynskii) 
-ㅤㅤㅤㅤㅤ[prns.page](https://en.pronouns.page/@connieboolynski) ㅤㅤㅤㅤ
-ㅤ[straw.page](https://miss-connie-boolynski.straw.page)
+ [atabook](https://connieboolynski.atabook.org)ㅤㅤ✧ㅤㅤ
+ [prns.cc](https://pronouns.cc/@connieboolynskii)ㅤㅤ✧ㅤㅤ
+ [prns.page](https://en.pronouns.page/@connieboolynski)ㅤㅤ✧ㅤㅤㅤ
+ [straw.page](https://miss-connie-boolynski.straw.page)ㅤㅤㅤㅤ
 
 
 
