@@ -13,9 +13,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤ[atabook](https://connieboolynski.atabook.org) 
-ㅤㅤㅤ[prns.cc](https://pronouns.cc/@connieboolynskii) 
-ㅤㅤㅤㅤ[prns.page](https://en.pronouns.page/@connieboolynski) ㅤㅤㅤㅤ[straw.page](https://miss-connie-boolynski.straw.page)
+ㅤㅤㅤㅤ[atabook](https://connieboolynski.atabook.org) 
+ㅤㅤㅤㅤ[prns.cc](https://pronouns.cc/@connieboolynskii) 
+ㅤㅤㅤㅤㅤ[prns.page](https://en.pronouns.page/@connieboolynski) ㅤㅤㅤㅤ
+ㅤ[straw.page](https://miss-connie-boolynski.straw.page)
 
 
 
