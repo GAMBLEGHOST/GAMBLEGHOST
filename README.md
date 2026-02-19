@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ𝅄𓈒꒰⁠ ![₊།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=894B54&style=flat&label=₊།𓋫࿔) ꒱⁠𓈒𝅄ㅤㅤㅤ
+ㅤㅤㅤજ⁀➴ㅤ𝅄𓈒꒰⁠ ![₊།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=894B54&style=flat&label=₊།𓋫࿔) ꒱⁠𓈒𝅄ㅤㅤㅤ
 
 
 
@@ -16,10 +16,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
- [atabook](https://connieboolynski.atabook.org)ㅤㅤ✧ㅤㅤ
- [prns.cc](https://pronouns.cc/@connieboolynskii)ㅤㅤ✧ㅤㅤ
- [prns.page](https://en.pronouns.page/@connieboolynski)ㅤㅤ✧ㅤㅤㅤ
- [strawpage](https://miss-connie-boolynski.straw.page)ㅤㅤㅤㅤ
+ [atabook](https://connieboolynski.atabook.org)ㅤㅤϑㅤㅤ
+ [prns.cc](https://pronouns.cc/@connieboolynskii)ㅤㅤ𐑞ㅤㅤ
+ [prns.page](https://en.pronouns.page/@connieboolynski)ㅤㅤৎㅤㅤㅤ
+ [strawpage](https://miss-connie-boolynski.straw.page) ㅤㅤㅤㅤ
 
 
 
