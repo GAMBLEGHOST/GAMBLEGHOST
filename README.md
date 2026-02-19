@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ𝅄𓈒꒰⁠ ![₊།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=FFC4E4&style=flat&label=₊།𓋫࿔) ꒱⁠𓈒𝅄ㅤㅤㅤ
+ㅤㅤㅤㅤㅤ𝅄𓈒꒰⁠ ![₊།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=894B54&style=flat&label=₊།𓋫࿔) ꒱⁠𓈒𝅄ㅤㅤㅤ
 
 
 
@@ -23,7 +23,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=20&color=F2C6D3&center=true&vCenter=true&width=450&lines=%E2%80%9C+do+you+wanna+join+the+hellfire+club?%E2%80%9C" />
+  <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=700&size=20&color=894B54&center=true&vCenter=true&width=450&lines=%E2%80%9C+do+you+wanna+join+the+hellfire+club?%E2%80%9C" />
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
