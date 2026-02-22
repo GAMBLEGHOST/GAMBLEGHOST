@@ -1,4 +1,8 @@
-ㅤㅤㅤㅤㅤㅤᕦ𝅄𓈒 ![₊།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=8FDAD6&style=flat&label=₊།𓋫࿔) 𓈒𝅄ᕤㅤㅤㅤ
+ㅤ![1000015232](https://github.com/user-attachments/assets/18be1944-88db-42f8-9d0d-eb99b3d4c0be)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤᕦ𝅄𓈒 ![₊།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=8FDAD6&style=flat&label=₊།𓋫࿔) 𓈒𝅄ᕤㅤㅤㅤ
 
 
 <img width="1280" height="204" alt="1000015231" src="https://github.com/user-attachments/assets/b5729a9a-62d4-4aca-99b8-961dd6683d82" />
@@ -19,22 +23,19 @@
 
 <img width="385" height="20" alt="1000015229" src="https://github.com/user-attachments/assets/43b9f899-6ad9-4db7-9384-4938a1cfb445" />
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-####  ㅤㅤㅤㅤㅤ꒰ ⁠[sign my guestbook](https://connieboolynski.atabook.org) ꒱
-#### ㅤㅤㅤㅤㅤ꒰⁠ [byi & dni prns.cc](https://pronouns.cc/@connieboolynskii) ꒱
-#### ㅤㅤㅤㅤㅤ ꒰⁠ [info prns.page](https://en.pronouns.page/@connieboolynski) ꒱ㅤ
-#### ㅤㅤㅤㅤㅤ ꒰⁠ [sign my strawpage](https://miss-connie-boolynski.straw.page) ꒱ㅤㅤㅤ
+ ㅤㅤ[ata](https://connieboolynski.atabook.org) [prns.cc](https://pronouns.cc/@connieboolynskii) [prns.page](https://en.pronouns.page/@connieboolynski) [strawp](https://miss-connie-boolynski.straw.page) 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
-![1000015175](https://github.com/user-attachments/assets/01fee301-2741-4438-8069-cc442039126b)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
+ㅤㅤ![1000015175](https://github.com/user-attachments/assets/01fee301-2741-4438-8069-cc442039126b)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ![1000015232](https://github.com/user-attachments/assets/3f63d083-f60c-4078-908d-fc6e70a9a6cf)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
