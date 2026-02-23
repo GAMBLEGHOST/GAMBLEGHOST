@@ -1,4 +1,4 @@
-ㅤ![1000015232](https://github.com/user-attachments/assets/18be1944-88db-42f8-9d0d-eb99b3d4c0be)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
@@ -16,6 +16,9 @@
 <img width="1280" height="204" alt="1000015231" src="https://github.com/user-attachments/assets/04acc77a-ed84-4c80-88d3-0693c489818b" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤ![1000015451](https://github.com/user-attachments/assets/0dee52d9-ab9d-4147-8b18-b49a4dd7e17d)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display:ital,wght@1,700&size=28&color=A7C7E7&center=true&vCenter=true&width=520&lines=%E2%80%9C+oOo~+where+did+i+go~!+%E2%80%9C" />
 </p>
@@ -26,16 +29,15 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
- ㅤㅤ[ata](https://connieboolynski.atabook.org) [prns.cc](https://pronouns.cc/@connieboolynskii) [prns.page](https://en.pronouns.page/@connieboolynski) [strawp](https://miss-connie-boolynski.straw.page) 
+ㅤㅤ[ata](https://connieboolynski.atabook.org) [prns.cc](https://pronouns.cc/@connieboolynskii) [prns.page](https://en.pronouns.page/@connieboolynski) [strawp](https://miss-connie-boolynski.straw.page) 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
 
-ㅤㅤ![1000015175](https://github.com/user-attachments/assets/01fee301-2741-4438-8069-cc442039126b)
+ㅤㅤ![1000015173](https://github.com/user-attachments/assets/c45f4616-9c51-4f73-aa74-5b307485cfc5)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ![1000015232](https://github.com/user-attachments/assets/3f63d083-f60c-4078-908d-fc6e70a9a6cf)
+
+ㅤㅤㅤ![1000015452](https://github.com/user-attachments/assets/f5858a41-dc87-4b23-ac64-53ea203ab6a8)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
