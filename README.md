@@ -29,7 +29,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤ[ata](https://connieboolynski.atabook.org) [prns.cc](https://pronouns.cc/@connieboolynskii) [prns.page](https://en.pronouns.page/@connieboolynski) [strawp](https://miss-connie-boolynski.straw.page) 
+ㅤㅤㅤ[ata](https://connieboolynski.atabook.org) [prns.cc](https://pronouns.cc/@connieboolynskii) [prns.page](https://en.pronouns.page/@connieboolynski) [strawp](https://miss-connie-boolynski.straw.page) 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
