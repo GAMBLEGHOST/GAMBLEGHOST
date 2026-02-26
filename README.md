@@ -27,7 +27,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
 ㅤㅤ
-ㅤㅤㅤㅤ![1000015682](https://github.com/user-attachments/assets/01224df6-70e9-48d0-8eda-15a5510e4d20)
+ㅤㅤㅤㅤㅤ![1000015682](https://github.com/user-attachments/assets/01224df6-70e9-48d0-8eda-15a5510e4d20)
 
 ㅤㅤ![1000015688](https://github.com/user-attachments/assets/04a9373d-1533-4290-91a0-adc03a716c89)ㅤㅤтιαα ㅤ✦ㅤ¢σηηιєㅤ![1000015688](https://github.com/user-attachments/assets/58195747-db2e-43d2-99d2-986d42bc449e)
 
