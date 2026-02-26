@@ -25,9 +25,12 @@
 ![1000015234](https://github.com/user-attachments/assets/7a03978b-7120-41f0-931e-6fd3dcc1f30d)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ
-ㅤㅤ
-ㅤㅤㅤㅤㅤ![1000015682](https://github.com/user-attachments/assets/01224df6-70e9-48d0-8eda-15a5510e4d20)
+ㅤㅤㅤ
+
+ㅤㅤ![1000015684](https://github.com/user-attachments/assets/8adcb420-13f5-4759-8933-3ce11561f810)
+
+
+
 
 ㅤㅤ![1000015688](https://github.com/user-attachments/assets/04a9373d-1533-4290-91a0-adc03a716c89)ㅤㅤтιαα ㅤ✦ㅤ¢σηηιєㅤ![1000015688](https://github.com/user-attachments/assets/58195747-db2e-43d2-99d2-986d42bc449e)
 
