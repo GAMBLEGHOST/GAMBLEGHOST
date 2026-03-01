@@ -1,18 +1,20 @@
 ![1000013663](https://github.com/user-attachments/assets/f837ba7f-0248-4a5e-ac45-036fbd14ad48)
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ ㅤᕦ![1000015686](https://github.com/user-attachments/assets/5414fed6-886e-4108-9db6-6da66e564eed)
+![།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=81699F&style=flat&label=།STOCKINGㅤANGEL)![1000015686](https://github.com/user-attachments/assets/365c4b0e-b849-4211-9bdc-581f6d1c8aca)
+ᕤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ![1000015662](https://github.com/user-attachments/assets/3be9b213-2f94-46fd-8598-7c9f42b58433)
 
 
-ㅤㅤ ㅤ![1000015433](https://github.com/user-attachments/assets/71e5573a-545f-4199-9044-a029d42a98a9)![1000015434](https://github.com/user-attachments/assets/c2a210c7-5a51-42df-9e12-ee85be9c4f50)![1000015435](https://github.com/user-attachments/assets/d4f44565-9900-489e-88a2-a9729aa59ba3)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ![1000015433](https://github.com/user-attachments/assets/71e5573a-545f-4199-9044-a029d42a98a9)![1000015434](https://github.com/user-attachments/assets/c2a210c7-5a51-42df-9e12-ee85be9c4f50)![1000015435](https://github.com/user-attachments/assets/d4f44565-9900-489e-88a2-a9729aa59ba3)
 
- ㅤㅤㅤㅤᕦ![1000015686](https://github.com/user-attachments/assets/5414fed6-886e-4108-9db6-6da66e564eed)
-![།𓋫࿔](https://komarev.com/ghpvc/?username=connieboolynski&color=81699F&style=flat&label=།𓋫࿔)![1000015686](https://github.com/user-attachments/assets/365c4b0e-b849-4211-9bdc-581f6d1c8aca)
-ᕤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![1000015736](https://github.com/user-attachments/assets/226140fd-763d-4eb6-a267-343f5e63e4ce)
+ㅤㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Playwrite+AU+SA&weight=600&size=24&pause=1800&duration=4200&color=FF6EC7&center=true&vCenter=true&width=520&lines=%E2%80%9CCan+a+sista+get+paid%3F%21+For+realz%21%E2%80%9D"/>
@@ -28,24 +30,14 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤ
 
-ㅤㅤㅤ![1000015684](https://github.com/user-attachments/assets/8adcb420-13f5-4759-8933-3ce11561f810)
+ㅤㅤ![1000015684](https://github.com/user-attachments/assets/8adcb420-13f5-4759-8933-3ce11561f810)
 
 
 
 
-##### ㅤㅤㅤㅤ![1000015688](https://github.com/user-attachments/assets/04a9373d-1533-4290-91a0-adc03a716c89)ㅤㅤтιαα ㅤ✦ㅤ¢σηηιєㅤ![1000015688](https://github.com/user-attachments/assets/58195747-db2e-43d2-99d2-986d42bc449e)
+#### ㅤㅤ![1000015688](https://github.com/user-attachments/assets/04a9373d-1533-4290-91a0-adc03a716c89)ㅤㅤтιαα ㅤ✦ㅤ¢σηηιєㅤ![1000015688](https://github.com/user-attachments/assets/58195747-db2e-43d2-99d2-986d42bc449e)
 
-##### ㅤㅤ![1000015687](https://github.com/user-attachments/assets/07f2c001-87c3-41f6-8deb-9cc2b948ee98) ѕнєㅤ ♡ㅤнєяㅤ ♡ㅤηαмєѕєℓƒ ![1000015687](https://github.com/user-attachments/assets/038a9c05-c034-491a-831b-6fbe8bfeeaa4)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-ㅤㅤ![1000015180](https://github.com/user-attachments/assets/4bb80cd3-cff9-4d8d-bf9e-66670810f287)
-
-
-### ㅤ![1000015453](https://github.com/user-attachments/assets/a96190f2-7996-4b2d-bbd8-059490ff9023) CHECK MY [OCS](https://docs.google.com/document/d/1c7KitTL--jHrPzA2ou40ZHALnTpreuFqyGv9dGoHaVw/edit?usp=drivesdk) OUT ! ![1000015453](https://github.com/user-attachments/assets/0ecab0ac-894c-4317-aa9f-ee1fb718f40f)
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+#### ![1000015687](https://github.com/user-attachments/assets/07f2c001-87c3-41f6-8deb-9cc2b948ee98) ѕнєㅤ ♡ㅤнєяㅤ ♡ㅤηαмєѕєℓƒ ![1000015687](https://github.com/user-attachments/assets/038a9c05-c034-491a-831b-6fbe8bfeeaa4)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤ![1000015676](https://github.com/user-attachments/assets/725ecdd1-b6a4-4a09-9fab-52bccce269f5)
 
