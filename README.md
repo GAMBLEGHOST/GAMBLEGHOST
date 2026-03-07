@@ -1,6 +1,6 @@
 <img width="733" height="240" alt="1000016127" src="https://github.com/user-attachments/assets/f952193b-95a0-4187-8650-2208a6df885a" />ㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-##### ㅤㅤㅤㅤㅤㅤ![GHOSTS੭](https://komarev.com/ghpvc/?username=connieboolynski&label=GHOSTS%E0%B8%AD&color=6CC1B7)
+##### ㅤㅤㅤㅤㅤㅤㅤ![GHOSTS੭](https://komarev.com/ghpvc/?username=connieboolynski&label=GHOSTS%E0%B8%AD&color=6CC1B7)
 
 <p align="center">
   <img src="https://img.shields.io/badge/໒꒰%20⌯%20oOo~%20Where%20did i go !%20੭%20꒱ა-ECFCCA?style=flat&labelColor=000000&color=000000">
@@ -21,11 +21,13 @@
 
 
 
-#### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა 
+#### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა ![1000015688](https://github.com/user-attachments/assets/89403a97-a54d-4af7-ab19-bc90053a582b)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![sparklesparkle3](https://github.com/user-attachments/assets/adee966e-fe8f-4aa1-a2e0-3b009516cc47)![1000015768](https://github.com/user-attachments/assets/646e4241-4bc2-42d7-a9ae-f5ef187d10bf)![1000015768](https://github.com/user-attachments/assets/c3fed49a-9429-4b77-9e8e-56ec2205053d)
+![sparklesparkle3](https://github.com/user-attachments/assets/adee966e-fe8f-4aa1-a2e0-3b009516cc47)![1000015768](https://github.com/user-attachments/assets/646e4241-4bc2-42d7-a9ae-f5ef187d10bf2)
 
 <img width="512" height="48" alt="1000015796" src="https://github.com/user-attachments/assets/14afa338-bc26-4ac9-a13f-83843e79432b" />
 
