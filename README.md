@@ -18,8 +18,7 @@
 
 
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა 
+#### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
@@ -32,11 +31,7 @@
 
 ㅤ𝁍ㅤ⠀࣪⠀ଓ ㅤ⊹ ⠀࣪⠀ㅤ୨ ㅤ𔘓  𝁐ㅤ𔒱ㅤㅤ੭
 
-ㅤㅤㅤㅤ![1000015686](https://github.com/user-attachments/assets/037ab0e3-f421-4702-9fde-fdb847d1a5fa)
-![1000015692](https://github.com/user-attachments/assets/053031d3-628f-44da-b0dd-2b49c5a70efd)
-![1000015698](https://github.com/user-attachments/assets/9ebcb5f4-c0d6-4269-9d8b-452dc8dec648)
-![1000015690](https://github.com/user-attachments/assets/51a96dc1-f69e-4fdc-973c-23c1c7ff2adb)![1000015690](https://github.com/user-attachments/assets/017459b1-7630-4f6c-be26-1ee1e5d15af3)
-![1000015686](https://github.com/user-attachments/assets/c02ff2aa-ef9a-47fd-bb42-5647b170f1bc)
+ㅤㅤㅤㅤ![1000015686](https://github.com/user-attachments/assets/037ab0e3-f421-4702-9fde-fdb847d1a5fa)![1000015692](https://github.com/user-attachments/assets/053031d3-628f-44da-b0dd-2b49c5a70efd)![1000015698](https://github.com/user-attachments/assets/9ebcb5f4-c0d6-4269-9d8b-452dc8dec648)![1000015690](https://github.com/user-attachments/assets/51a96dc1-f69e-4fdc-973c-23c1c7ff2adb)![1000015690](https://github.com/user-attachments/assets/017459b1-7630-4f6c-be26-1ee1e5d15af3)![1000015686](https://github.com/user-attachments/assets/c02ff2aa-ef9a-47fd-bb42-5647b170f1bc)
 
 
 
