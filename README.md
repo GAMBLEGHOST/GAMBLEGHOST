@@ -1,6 +1,6 @@
 <img width="733" height="240" alt="1000016127" src="https://github.com/user-attachments/assets/f952193b-95a0-4187-8650-2208a6df885a" />ㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ![GHOSTS੭](https://komarev.com/ghpvc/?username=connieboolynski&label=GHOSTS%E0%B8%AD&color=6CC1B7)
+##### ㅤㅤㅤㅤㅤㅤ![GHOSTS੭](https://komarev.com/ghpvc/?username=connieboolynski&label=GHOSTS%E0%B8%AD&color=6CC1B7)
 
 <p align="center">
   <img src="https://img.shields.io/badge/໒꒰%20⌯%20oOo~%20Where%20did i go !%20੭%20꒱ა-ECFCCA?style=flat&labelColor=000000&color=000000">
@@ -16,9 +16,12 @@
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
+ㅤㅤㅤ<img width="51" height="18" alt="1000016236" src="https://github.com/user-attachments/assets/eae3a0dc-72a3-4c2f-a8e5-857d590384fe" /><img width="71" height="18" alt="1000016237" src="https://github.com/user-attachments/assets/5ba6acff-6394-4a12-9d18-2c54fc496bac" /><img width="49" height="18" alt="1000016238" src="https://github.com/user-attachments/assets/6c0b40bf-96b4-435b-a02c-735d1bf33bb7" />
 
 
-#### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა 
+
+
+#### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
