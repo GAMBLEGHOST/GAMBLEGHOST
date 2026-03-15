@@ -1,6 +1,6 @@
 <img width="733" height="240" alt="1000016127" src="https://github.com/user-attachments/assets/f952193b-95a0-4187-8650-2208a6df885a" />ㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-##### ㅤㅤㅤㅤㅤㅤㅤ![GHOSTS੭](https://komarev.com/ghpvc/?username=connieboolynski&label=GHOSTS%E0%B8%AD&color=6CC1B7)
+#####  ㅤㅤㅤㅤㅤ![ghostㅤsnakes੭](https://komarev.com/ghpvc/?username=connieboolynski&label=ghostㅤsnakes੭%E0%B8%AD&color=6CC1B7)
 
 <p align="center">
   <img src="https://img.shields.io/badge/໒꒰%20⌯%20oOo~%20Where%20did i go !%20੭%20꒱ა-ECFCCA?style=flat&labelColor=000000&color=000000">
