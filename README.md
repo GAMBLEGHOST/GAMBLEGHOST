@@ -19,10 +19,10 @@
 ㅤㅤㅤ<img width="51" height="18" alt="1000016236" src="https://github.com/user-attachments/assets/eae3a0dc-72a3-4c2f-a8e5-857d590384fe" /><img width="71" height="18" alt="1000016237" src="https://github.com/user-attachments/assets/5ba6acff-6394-4a12-9d18-2c54fc496bac" /><img width="49" height="18" alt="1000016238" src="https://github.com/user-attachments/assets/6c0b40bf-96b4-435b-a02c-735d1bf33bb7" />
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-#### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-─ㅤ𝁍ㅤ𔓕ㅤƚιααㅤㅤ𝁑ㅤㅤ𝖼𝗼ɳɳιҽㅤ𓇬ㅤㅤㅤㅤㅤ໒꒰ ⸝⸝◜⩊◝⸝⸝ ྀི꒱ა ![1000015688](https://github.com/user-attachments/assets/89403a97-a54d-4af7-ab19-bc90053a582b)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31csjciawoskkazx645babnbrpoi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -36,7 +36,7 @@
 
 ㅤ𝁍ㅤ⠀࣪⠀ଓ ㅤ⊹ ⠀࣪⠀ㅤ୨ ㅤ𔘓  𝁐ㅤ𔒱ㅤㅤ੭
 
-ㅤㅤㅤㅤ![1000015686](https://github.com/user-attachments/assets/037ab0e3-f421-4702-9fde-fdb847d1a5fa)![1000015692](https://github.com/user-attachments/assets/053031d3-628f-44da-b0dd-2b49c5a70efd)![1000015698](https://github.com/user-attachments/assets/9ebcb5f4-c0d6-4269-9d8b-452dc8dec648)![1000015690](https://github.com/user-attachments/assets/51a96dc1-f69e-4fdc-973c-23c1c7ff2adb)![1000015690](https://github.com/user-attachments/assets/017459b1-7630-4f6c-be26-1ee1e5d15af3)![1000015686](https://github.com/user-attachments/assets/c02ff2aa-ef9a-47fd-bb42-5647b170f1bc)
+ㅤㅤㅤㅤㅤ![1000015686](https://github.com/user-attachments/assets/037ab0e3-f421-4702-9fde-fdb847d1a5fa)![1000015692](https://github.com/user-attachments/assets/053031d3-628f-44da-b0dd-2b49c5a70efd)![1000015698](https://github.com/user-attachments/assets/9ebcb5f4-c0d6-4269-9d8b-452dc8dec648)![1000015690](https://github.com/user-attachments/assets/51a96dc1-f69e-4fdc-973c-23c1c7ff2adb)![1000015690](https://github.com/user-attachments/assets/017459b1-7630-4f6c-be26-1ee1e5d15af3)![1000015686](https://github.com/user-attachments/assets/c02ff2aa-ef9a-47fd-bb42-5647b170f1bc)
 
 
 
