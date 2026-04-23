@@ -1,5 +1,4 @@
-
-ㅤ„ㅤ![1000013950](https://github.com/user-attachments/assets/23c2cc68-d7a7-4612-8423-416be11298b7) come closer. come c̶l̶o̶s̶e̶r ![1000013949](https://github.com/user-attachments/assets/b22696e4-58c7-4fc2-a628-df7c8dc19145)
+stop sending death threats on my ata gang
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 #####  ㅤㅤㅤㅤㅤㅤ![༉‧FALLENㅤANGEL](https://komarev.com/ghpvc/?username=connieboolynski&label=༉‧FALLENㅤANGEL%E0%B8%AD&color=6CC1B7)
