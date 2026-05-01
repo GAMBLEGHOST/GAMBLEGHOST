@@ -1,4 +1,5 @@
 
+<img width="734" height="245" alt="1000020272" src="https://github.com/user-attachments/assets/f138d4cd-6a2a-4adf-9102-db1318fb7303" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -7,7 +8,7 @@
 
 
 
-redoing soon. working on rethemes
+ㅤㅤredoing soon. working on gfx / pfps
 
 
 
