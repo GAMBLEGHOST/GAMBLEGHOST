@@ -1,5 +1,5 @@
+image and colored texts here soon
 
-<img width="720" height="806" alt="1000021370" src="https://github.com/user-attachments/assets/95cfeca9-9f27-4a91-a929-f74ffcb614a2" />
 
 
 
@@ -8,8 +8,15 @@
 
 
 
+ㅤㅤ<img width="393" height="13" alt="1000019334" src="https://github.com/user-attachments/assets/e037aef5-8208-4d77-8406-f6157da3821f" /> 
 
-ㅤㅤredoing soon. working on gfx / pfps
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+ㅤㅤㅤㅤ<img width="20" height="20" alt="1000019338" src="https://github.com/user-attachments/assets/4082addd-c282-468a-a7f5-f58cfd1310a8" />
+𝐆𝐞𝐦𝐢𝐧𝐢 / 𝐈-𝐈𝐍𝐓𝐏 <img width="20" height="20" alt="1000019338" src="https://github.com/user-attachments/assets/4082addd-c282-468a-a7f5-f58cfd1310a8" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ<img width="20" height="20" alt="1000019340" src="https://github.com/user-attachments/assets/fccfc585-ac0d-4fe8-b893-34bbcef7949d" /> 𝐩𝐫𝐨𝐮𝐝 𝐠𝐚𝐦𝐛𝐥𝐞𝐠𝐡𝐨𝐬𝐭 𝐜𝐞𝐨 <𝟑 <img width="20" height="20" alt="1000019340" src="https://github.com/user-attachments/assets/fccfc585-ac0d-4fe8-b893-34bbcef7949d" />
 
 
 
