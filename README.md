@@ -1,4 +1,4 @@
-image and colored texts here soon
+image and colored texts here soon if i find out how it works yes wip 
 
 
 
