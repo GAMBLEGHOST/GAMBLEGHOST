@@ -1,5 +1,4 @@
-Coloured text + doll revamp with gfxs soon trust the progess guys
-
+Coloured text + doll revamp with gfxs soon trust the progess guys(?) i got lazy so ill do connie first (never)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 #####  ㅤㅤㅤㅤㅤㅤ![bigchudwip](https://komarev.com/ghpvc/?username=connieboolynski&label=bigchudwip%E0%B8%AD&color=6CC1B7)
 
