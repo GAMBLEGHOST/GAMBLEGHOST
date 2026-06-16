@@ -14,7 +14,7 @@
 ###  ㅤㅤ ㅤ  ㅤㅤ![ଘ(੭ˊ꒳ˋ)](https://komarev.com/ghpvc/?username=connieboolynski&label=ଘ(੭ˊ꒳ˋ)%E0%B8%AD&color=9BEFFF)
 
 
-#### ㅤㅤㅤ𓂃 k̠n̠o̠w̠n̠ ᥲs ᥴ᥆ᥒᥒіᥱ f̠a̠n̠ / k̠i̠n̠ ´ ✙
+#### ㅤㅤㅤ𓂃 k̠n̠o̠w̠n̠ ᥲs ᥴ᥆ᥒᥒіᥱ [f̠a̠](https://github.com/fan-town)n̠ / [k̠i̠](https://github.com/title-town)n̠ ´︵⠀
 
 
 ##### ㅤ ㅤ⩊ the og gambleghost & dollbecca ceo メ
