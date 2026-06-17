@@ -2,7 +2,7 @@
 
 
 
-### ㅤㅤㅤㅤㅤread this [doc](https://docs.google.com/document/d/1LLWlxaCnNoKZSVDav6QRKuumJ9pj_Dw4fwIL35SDWK4/edit?usp=drivesdk)
+### ㅤㅤㅤㅤread this. its a [doc](https://docs.google.com/document/d/1LLWlxaCnNoKZSVDav6QRKuumJ9pj_Dw4fwIL35SDWK4/edit?usp=drivesdk)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 tinted gambleghost drawing here soon
