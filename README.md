@@ -1,6 +1,8 @@
 <img width="1920" height="435" alt="1000023839" src="https://github.com/user-attachments/assets/b929e8dc-0bab-4f83-88e4-8ed765599269" />
 
-# im still working on the doc with other authors b patient (ill put it here when its fully done)
+
+
+read this [doc](https://docs.google.com/document/d/1LLWlxaCnNoKZSVDav6QRKuumJ9pj_Dw4fwIL35SDWK4/edit?usp=drivesdk)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 tinted gambleghost drawing here soon
