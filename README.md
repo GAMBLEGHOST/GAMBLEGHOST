@@ -4,8 +4,9 @@
 
 ### ㅤㅤㅤㅤread this. its a [doc](https://docs.google.com/document/d/1LLWlxaCnNoKZSVDav6QRKuumJ9pj_Dw4fwIL35SDWK4/edit?usp=drivesdk)
 
-🤔🤔if you contunie with telling i impersonated you or signing my atabook i will also contunie the document you are making me uncomfortable girl i even have you on my dni LEARN HOW TO RESPECT peoples boundradies??
 
+
+<img width="250" height="230" alt="1000023493" src="https://github.com/user-attachments/assets/4d8dd5f4-7183-4a36-af81-7cb08a1e4080" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
